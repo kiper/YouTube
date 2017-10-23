@@ -1,5 +1,5 @@
 ## YouTube
-Bir kaç senedir YouTube'da denk geldiğim ve takip ettiğim kanalları kategorizelendirerek böyle bir arşiv yapmak istedim.
+Birkaç senedir YouTube'da denk geldiğim ve takip ettiğim kanalları kategorizelendirerek böyle bir arşiv yapmak istedim.
 Faydalı olması dileğiyle..
 
 
