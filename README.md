@@ -128,7 +128,6 @@ Not: Bu seçkiden faydalanacağını düşündüğünüz birilerine linki gönde
 - [Çılgın Fizikçiler ve Bilim İnsanları](https://www.youtube.com/channel/UCY8XjAJrmBRk7aHJrwDX0pw)
 
 ## Teknik
-
 ### Elektrik - Elektronik
 - [Afrotechmods](https://www.youtube.com/channel/UCosnWgi3eorc1klEQ8pIgJQ)
 - [Ahmet Erboğa](https://www.youtube.com/channel/UCneEYmgw60GxjQbO3awbQFQ)
@@ -168,7 +167,6 @@ Not: Bu seçkiden faydalanacağını düşündüğünüz birilerine linki gönde
 - [Teknik Sohbet](https://www.youtube.com/channel/UCWtRyjYIkzmwoNO3MGZOhNg)
 
 ## Teknoloji
-
 ### Firma
 - [Apple](https://www.youtube.com/channel/UCE_M8A5yxnLfW0KghEeajjw)
 - [Digital Age](https://www.youtube.com/channel/UC2jHmFZ3_n14XctOO88yu6g)
@@ -352,6 +350,7 @@ Not: Bu seçkiden faydalanacağını düşündüğünüz birilerine linki gönde
 - [Sevim Gözay](https://www.youtube.com/channel/UCgzpeV1x1JH44L7UOBKJ5nQ)
 
 ### Dizi
+- [AVM Sakini](https://www.youtube.com/channel/UC0HFRAAZq82YxPVAN9lfg0A)
 - [CoptenFilm](https://www.youtube.com/channel/UClOQhPv0v3Bv9V1YSlDUzBA)
 - [FOR.BROS. CO](https://www.youtube.com/channel/UCZ-wwwxFE-mVzapFBIUSASg)
 - [Görünen Adam](https://www.youtube.com/channel/UC7N4GnGhfS70oL0pYzepR4Q)
