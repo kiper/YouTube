@@ -52,6 +52,7 @@ Not: Bu seçkiden faydalanacağını düşündüğünüz birilerine linki gönde
 - [Big Think](https://www.youtube.com/channel/UCvQECJukTDE2i6aCoMnS-Vg)
 - [Facts.](https://www.youtube.com/channel/UCmEnDJfwzlfVZyDdIznoiww)
 - [Learn Engineering](https://www.youtube.com/channel/UCqZQJ4600a9wIfMPbYc60OQ)
+- [Muhtasar Muhabbet](https://www.youtube.com/channel/UCjq_yVc1tFtProXv2dNYcfA)
 - [Mateusz M](https://www.youtube.com/channel/UCnJ-KJLPlRw90rGs_6XfmmQ)
 - [Relaxing Soundzzz](https://www.youtube.com/channel/UCrILBI7SUyvBCeoJxFpJNhA)
 - [SALT Online](https://www.youtube.com/channel/UCiJ9vMqwZcdiJ30lP4qQnRg)
@@ -254,6 +255,7 @@ Not: Bu seçkiden faydalanacağını düşündüğünüz birilerine linki gönde
 
 ## Hobi
 ### Sofistike
+- [Bob Ross](https://www.youtube.com/channel/UCxcnsr1R5Ge_fbTu5ajt8DQ)
 - [Fakir Foturafcı](https://www.youtube.com/channel/UCtk-_6EEQ0luVPCHrRoirRw)
 - [CrazyRussianHacker](https://www.youtube.com/channel/UCe_vXdMrHHseZ_esYUskSBw)
 - [Geekyapar!](https://www.youtube.com/channel/UCKkeveNcsI3POExhFO_yg1A)
