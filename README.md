@@ -1,6 +1,7 @@
 ## YouTube
 Birkaç senedir YouTube'da denk geldiğim ve takip ettiğim kanalları kategorizelendirerek böyle bir arşiv yapmak istedim.
 Faydalı olması dileğiyle...
+Not: Bu seçkiden faydalanacağını düşündüğünüz birilerine linki göndermenizi rica ediyorum.
 
 
 ---
