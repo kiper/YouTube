@@ -352,6 +352,7 @@ Not: Bu seçkiden faydalanacağını düşündüğünüz birilerine linki gönde
 ### Dizi
 - [AVM Sakini](https://www.youtube.com/channel/UC0HFRAAZq82YxPVAN9lfg0A)
 - [CoptenFilm](https://www.youtube.com/channel/UClOQhPv0v3Bv9V1YSlDUzBA)
+- [Dikkat Şahan Çıkabilir](https://www.youtube.com/channel/UCwh9NweVJmbE-nHBaudIxVQ)
 - [FOR.BROS. CO](https://www.youtube.com/channel/UCZ-wwwxFE-mVzapFBIUSASg)
 - [Görünen Adam](https://www.youtube.com/channel/UC7N4GnGhfS70oL0pYzepR4Q)
 - [KALT](https://www.youtube.com/channel/UCB12vt2obajvkegtlpb_F8Q)
