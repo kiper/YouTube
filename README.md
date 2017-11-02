@@ -470,6 +470,7 @@ Faydalı olması dileğiyle...
 - [Cansu Canan Özgen](https://www.youtube.com/channel/UCpSbJr7VqLhd3kH39MzuTUQ)
 - [CaseyNeistat](https://www.youtube.com/channel/UCtinbF-Q-fVthA0qrFQTgXQ)
 - [Deniz Bağdaş](https://www.youtube.com/channel/UC3Xu0FQeizzXhUtthFjFs8g)
+- [Derin Biricik](https://www.youtube.com/channel/UCWIk99HAEeiJZZskZ0day3A)
 - [Devletsah Alhanlıoglu Ozcan](https://www.youtube.com/channel/UCPbeg1Cm0gLf5zpWe9mj9ew)
 - [Ekin Soyak](https://www.youtube.com/channel/UCS2yOd3orzT5LGO09mHsmNQ)
 - [Gözlüklü ve Sakallı](https://www.youtube.com/channel/UCkKJ6R4xeSq79u6UaYYKjuQ)
