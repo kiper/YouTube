@@ -113,6 +113,7 @@ Faydalı olması dileğiyle...
 - [Well... Actually](https://www.youtube.com/channel/UCLzELCDHdDfPaJSZ-BJTawA)
 
 ## Bilim
+- [AçıkBeyin Eğitim](https://www.youtube.com/channel/UCwTFqq1xsRrwl5D2xwkJrPw)
 - [AstroSeyir](https://www.youtube.com/channel/UC7DCeloapADl8eIAs4wkdCQ)
 - [Basfi ile Deneysel Bilim]( https://www.youtube.com/channel/UCnAlXnZRNikus5wf4BPu4_A)
 - [Batu Ülker](https://www.youtube.com/channel/UCQtlzJnOrS3fHZYqFxu7A5w)
