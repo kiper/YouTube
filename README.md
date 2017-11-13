@@ -48,6 +48,7 @@ Faydalı olması dileğiyle...
 - [Sosyal Doku](https://www.youtube.com/channel/UC5V_BTDvg_aOYZos9Cyb4Rg)
 
 ## Orjinal
+- [BaBaLa TV](https://www.youtube.com/channel/UCZ5aOEWFOopXLeiIUd2mfJw)
 - [Barış Özcan](https://www.youtube.com/channel/UCv6jcPwFujuTIwFQ11jt1Yw)
 - [Big Think](https://www.youtube.com/channel/UCvQECJukTDE2i6aCoMnS-Vg)
 - [Facts.](https://www.youtube.com/channel/UCmEnDJfwzlfVZyDdIznoiww)
@@ -223,6 +224,7 @@ Faydalı olması dileğiyle...
 - [Fatih Arslan](https://www.youtube.com/channel/UCbUr0322a84OUtaqtcflYmA)
 - [Hamza Akbulut](https://www.youtube.com/channel/UCXWEna8f8Xnn6A8iw0pz-dQ)
 - [Kenan Abdullahoglu](https://www.youtube.com/channel/UC5wR13TL33-28I5UzndCuZQ)
+- [Kod demleme](https://www.youtube.com/channel/UCjekbqvm1FSKhrA_mvnBfIg)
 - [Levent Sapci](https://www.youtube.com/channel/UCxljr3GZos72yJ9XLvbGYcA)
 - [Mert Bulan](https://www.youtube.com/channel/UCVsQMUopKQi8mOE26e9PS3A)
 - [Okan Davut](https://www.youtube.com/channel/UCD9xZqZn8YHkm-6XnmdgYGg)
@@ -255,6 +257,7 @@ Faydalı olması dileğiyle...
 ## Hobi
 ### Sofistike
 - [Bob Ross](https://www.youtube.com/channel/UCxcnsr1R5Ge_fbTu5ajt8DQ)
+- [Erdi Karadeniz](https://www.youtube.com/channel/UCtnLBhzwHCDPW9TkD7n-1BA)
 - [Fakir Foturafcı](https://www.youtube.com/channel/UCtk-_6EEQ0luVPCHrRoirRw)
 - [CrazyRussianHacker](https://www.youtube.com/channel/UCe_vXdMrHHseZ_esYUskSBw)
 - [Geekyapar!](https://www.youtube.com/channel/UCKkeveNcsI3POExhFO_yg1A)
@@ -460,6 +463,7 @@ Faydalı olması dileğiyle...
 - [3'ün Biri](https://www.youtube.com/channel/UCxaLbyIqaUHVyaaeiVwAh8w)
 - [Alakasiz Sohbetler](https://www.youtube.com/channel/UC9kLfMawN5NQFJ6ZmCJBsng)
 - [Good Mythical Morning](https://www.youtube.com/channel/UC4PooiX37Pld1T8J5SYT-SQ)
+- [Müebbet Muhabbet](https://www.youtube.com/channel/UCogJiJqx8I6ZoPaRKsdwgaA)
 
 ## Vlog
 - [Ataberk Özdemir](https://www.youtube.com/channel/UCYsEqxGEQtKU9toJLE4hoJg)
@@ -479,6 +483,7 @@ Faydalı olması dileğiyle...
 - [İlkay Zaman](https://www.youtube.com/channel/UCFXD8GPjvUe8TSkqPTH3NNg)
 - [İlker Gümüşoluk](https://www.youtube.com/channel/UCETD8D52LKnFoqZzjWuPzQg)
 - [Mehmet Atilla Atasever](https://www.youtube.com/channel/UCFTh4yLSMBKUa2dPIkFO-DQ)
+- [Sarp Bozkurt](https://www.youtube.com/channel/UC_d52Mekb_SxZaXXe82YABw)
 - [Simon Clark](https://www.youtube.com/channel/UCRRr_xrOm66qaigIbwFLvbQ)
 - [Vlogbrothers](https://www.youtube.com/channel/UCGaVdbSav8xWuFWTadK6loA)
 
