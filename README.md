@@ -497,4 +497,5 @@ Faydalı olması dileğiyle...
 - [Merlin Mutfakta](https://www.youtube.com/channel/UC4_ubZfs6fwj9RTSfy5gNuw)
 - [Refika'nın Mutfağı](https://www.youtube.com/channel/UCO3MaQR-Vh6cgBZRlD44jWg)
 - [Tostçu Erol](https://www.youtube.com/channel/UCCLfu2q54Fm_kecw4jj5bhw)
+- [Vedat Milor](https://www.youtube.com/channel/UCjnNxbZ5lZ8MOiYPuf27SqA)
 - [Yemeğim Nasıl Geldi?](https://www.youtube.com/channel/UCpNf1HvlI5IiVUb1BZhAnrA)
