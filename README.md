@@ -171,6 +171,7 @@ Faydalı olması dileğiyle...
 ## Teknoloji
 ### Firma
 - [Apple](https://www.youtube.com/channel/UCE_M8A5yxnLfW0KghEeajjw)
+- [BostonDynamics](https://www.youtube.com/channel/UC7vVhkEfw4nOGp8TyDk7RcQ)
 - [Digital Age](https://www.youtube.com/channel/UC2jHmFZ3_n14XctOO88yu6g)
 - [Dijitaller](https://www.youtube.com/channel/UCCp14mxu-TJJ0JODTg-QcCw)
 - [Dünya Halleri](https://www.youtube.com/channel/UCDFllKLMJNTJunvdqCGFSpg)
@@ -208,6 +209,7 @@ Faydalı olması dileğiyle...
 
 ## Bilgisayar
 - [a developer](https://www.youtube.com/channel/UCMOHIn0COLqABLqGrKhEAqQ)
+- [Abdullah Uğraşkan](https://www.youtube.com/channel/UCOj-Jss7W9LnMbj51sOZLUQ)
 - [Adem Ilter](https://www.youtube.com/channel/UC1Z-a8i2Ce4oIEMV-S3iFrg)
 - [Afgan Rasulov](https://www.youtube.com/channel/UCInW-lJBGnS8PuKqaMjsLlQ)
 - [Algorythm44](https://www.youtube.com/channel/UCfBLOCqh3wcThWBlsiK15wg)
@@ -229,6 +231,7 @@ Faydalı olması dileğiyle...
 - [Mert Bulan](https://www.youtube.com/channel/UCVsQMUopKQi8mOE26e9PS3A)
 - [Okan Davut](https://www.youtube.com/channel/UCD9xZqZn8YHkm-6XnmdgYGg)
 - [Onur Gürler](https://www.youtube.com/channel/UCYly5dEMjl5fpt1GTpxGLHQ)
+- [Ömer Yiğit Aker](https://www.youtube.com/channel/UCRo92zrc6Um-eM2_3YbMXKg)
 - [PNPtutorials](https://www.youtube.com/channel/UCjTTeMYiWzfrKg5_i0cIkyA)
 - [PureCode](https://www.youtube.com/channel/UCB-KaodiHgHVKV-kD0V9Wsg)
 - [Selman Kahya](https://www.youtube.com/channel/UC9Z-Gc_BkYuW75jKcTJICJA)
@@ -256,15 +259,18 @@ Faydalı olması dileğiyle...
 
 ## Hobi
 ### Sofistike
+- [Adam Gibi Adam](https://www.youtube.com/channel/UCJsxhcnT25rpvOge6UunasQ)
 - [Bob Ross](https://www.youtube.com/channel/UCxcnsr1R5Ge_fbTu5ajt8DQ)
 - [Erdi Karadeniz](https://www.youtube.com/channel/UCtnLBhzwHCDPW9TkD7n-1BA)
 - [Fakir Foturafcı](https://www.youtube.com/channel/UCtk-_6EEQ0luVPCHrRoirRw)
+- [Feza Gezginleri](https://www.youtube.com/channel/UCYXTjCfVfvZFutUaB6wsdQw)
 - [CrazyRussianHacker](https://www.youtube.com/channel/UCe_vXdMrHHseZ_esYUskSBw)
 - [Geekyapar!](https://www.youtube.com/channel/UCKkeveNcsI3POExhFO_yg1A)
 - [Hayatını Hafiflet](https://www.youtube.com/channel/UCGsmooF7NIFtZROjPpTQ0WA)
 - [Home Organizing](https://www.youtube.com/channel/UCcvu0uB6SzugED_5FEC7Z0Q)
 - [Nisan Kumru](https://www.youtube.com/channel/UCqOcjhyS2YTZPc50ymIjk4g)
 - [Sevilen Reklamlar](https://www.youtube.com/channel/UCB4OkqTmPpled7wDE-n91bw)
+- [Seyit Ali](https://www.youtube.com/channel/UC-oqYfSKloLUCpPFT_mc8Iw)
 
 ### Doğa
 - [Böcek Reis](https://www.youtube.com/channel/UCId2RDms4kVhfuX_xuTUMug)
@@ -312,6 +318,7 @@ Faydalı olması dileğiyle...
 ### Spor
 - [AĞIRSAĞLAM](https://www.youtube.com/channel/UCXH9dxtCeB3Gn_QnWnBJaTQ)
 - [Sağlam Dövüş](https://www.youtube.com/channel/UCnZLcx-Kgq330ZbAc2py9vg)
+- [Satranç Medya](https://www.youtube.com/channel/UCTQbZcv-4ImPg9rC9jIjzpQ)
 - [Serkan Özkeskin](https://www.youtube.com/channel/UC8HQf8S-o2x-Od5W0NBm9aw)
 
 ### Zanaat 
@@ -405,6 +412,7 @@ Faydalı olması dileğiyle...
 - [Batesmotelpro](https://www.youtube.com/channel/UCPA4qIqVrrq71uzW02DVKRQ)
 - [Bilgi Şehri](https://www.youtube.com/channel/UC2aY7WWK6lc6Yf9On235gZQ)
 - [Cem Yılmaz](https://www.youtube.com/channel/UCBfQnAjHnWyFRmUQ4Rf8CGw)
+- [Çağlar Avcıl](https://www.youtube.com/channel/UCT6eRgDgQa49OPWwGZqFWoQ)
 - [Danla Bilic](https://www.youtube.com/channel/UCJXKKGzjjqnHAEkJsdC7ZKw)
 - [Deep Turkish Web](https://www.youtube.com/channel/UCMR6t4P2TqXOjVq3qgvo6gg)
 - [Educatedear](https://www.youtube.com/channel/UCHvluQBRDHmi4zMFnKJdaHQ)
@@ -480,6 +488,7 @@ Faydalı olması dileğiyle...
 - [Ekin Soyak](https://www.youtube.com/channel/UCS2yOd3orzT5LGO09mHsmNQ)
 - [Gözlüklü ve Sakallı](https://www.youtube.com/channel/UCkKJ6R4xeSq79u6UaYYKjuQ)
 - [Hannah Francis](https://www.youtube.com/channel/UCRVysS4Uc76QQOsefANUf0Q)
+- [Hayallerimde Ben](https://www.youtube.com/channel/UCMfkb0zF3Y0NKNeQrgrhctQ)
 - [İlkay Zaman](https://www.youtube.com/channel/UCFXD8GPjvUe8TSkqPTH3NNg)
 - [İlker Gümüşoluk](https://www.youtube.com/channel/UCETD8D52LKnFoqZzjWuPzQg)
 - [Mehmet Atilla Atasever](https://www.youtube.com/channel/UCFTh4yLSMBKUa2dPIkFO-DQ)
