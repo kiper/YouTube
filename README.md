@@ -302,6 +302,7 @@ Faydalı olması dileğiyle...
 
 ### Müzik
 - [Doğa İçin Çal](https://www.youtube.com/channel/UC_ljiMClHtF16_yNK8o99QA)
+- [Lin Pesto](https://www.youtube.com/channel/UCvEyNtbbOsHb1kEqJTkGi9w)
 - [Motto Müzik](https://www.youtube.com/channel/UCCVGqsHKA7nuwJL6FP_K4UQ)
 - [Haluk Levent](https://www.youtube.com/channel/UCpIX4bNRuoEfbAiirr5udhA)
 
