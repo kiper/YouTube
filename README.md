@@ -194,6 +194,7 @@ Faydalı olması dileğiyle...
 
 ### Kişi
 - [Bill Gates](https://www.youtube.com/channel/UCnEiGCE13SUI7ZvojTAVBKw)
+- [Donanımcı Baba](https://www.youtube.com/channel/UCOgCIGPoRY3q644bN1uOg4g)
 - [Ekin Kollama](https://www.youtube.com/channel/UCGwKgTyNa0jE1GZmFlyX9PQ)
 - [Hakkı Alkan](https://www.youtube.com/channel/UCek3UNSj6gq4FOPIOZkjc1g)
 - [iPhonedo](https://www.youtube.com/channel/UCvkODZ-I4tsdP2Qopov0jrA)
