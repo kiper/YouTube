@@ -336,6 +336,7 @@ Faydalı olması dileğiyle...
 - [Artjurnal](https://www.youtube.com/channel/UCUz925SMS7hmMp9xbjLXXDQ)
 - [Biryudumkitap](https://www.youtube.com/channel/UCm62qLd3RjhEk0rNYihJ4Bg)
 - [BookSerf](https://www.youtube.com/channel/UChWTDeH-jdNLhxeZD2LikdA)
+- [Can Yayınları](https://www.youtube.com/channel/UCCbaz38TzwuRw5bNopSC3lQ)
 - [Epic Reads](https://www.youtube.com/channel/UCSRwwQb-oMNAWWAnw0bh27w)
 - [Eren Nadir Akşamoğlu](https://www.youtube.com/channel/UC9ZbACDE1SohAqE5M1dco0A)
 - [KAFA Dergisi](https://www.youtube.com/channel/UC3UYYweSGUJgk_TlUzpEaBw)
