@@ -230,6 +230,7 @@ Faydalı olması dileğiyle...
 - [Kod demleme](https://www.youtube.com/channel/UCjekbqvm1FSKhrA_mvnBfIg)
 - [Levent Sapci](https://www.youtube.com/channel/UCxljr3GZos72yJ9XLvbGYcA)
 - [Mert Bulan](https://www.youtube.com/channel/UCVsQMUopKQi8mOE26e9PS3A)
+- [ModArt PC](https://www.youtube.com/channel/UCYoVFIBpw0gA4mCTryktU6Q)
 - [Okan Davut](https://www.youtube.com/channel/UCD9xZqZn8YHkm-6XnmdgYGg)
 - [Onur Gürler](https://www.youtube.com/channel/UCYly5dEMjl5fpt1GTpxGLHQ)
 - [Ömer Yiğit Aker](https://www.youtube.com/channel/UCRo92zrc6Um-eM2_3YbMXKg)
@@ -285,6 +286,7 @@ Faydalı olması dileğiyle...
 
 ### Araç
 - [Altın Elbiseli Adam](https://www.youtube.com/channel/UCef-j9u0IYllBZ955fCfa9A)
+- [Aziz Kancar](https://www.youtube.com/channel/UCK5WW3CIiYWwQ-8Pgz2y-Og)
 - [Kerem Gök](https://www.youtube.com/channel/UC83FapU3UH3hS9ckCU2fy1g)
 - [İki Teker Bir Adam](https://www.youtube.com/channel/UCXZLCj44uBbkE6C_viOEQqQ)
 - [İkiTekeriz](https://www.youtube.com/channel/UCjNGc0eYlO_Q6cPiEpJzY3w)
@@ -308,6 +310,7 @@ Faydalı olması dileğiyle...
 - [Haluk Levent](https://www.youtube.com/channel/UCpIX4bNRuoEfbAiirr5udhA)
 
 ### Oyun
+- [Cengiz's Retro Game Room](https://www.youtube.com/channel/UCs0WTo-u94_0iisdZok64EA)
 - [Howard Quin](https://www.youtube.com/channel/UCNiJQV-AbCXLGQ-qaOZZgNg)
 - [Jahrein](https://www.youtube.com/channel/UCfo8l0mgO_eleaditz0EClA)
 - [Konsol Üssü](https://www.youtube.com/channel/UCVPfwYzn7JKp6eH2echqbxg)
@@ -446,6 +449,7 @@ Faydalı olması dileğiyle...
 - [Yorekok](https://www.youtube.com/channel/UCaiy6wwEQD4y5xIMm7bzBQw)
 
 ## Macera
+- [Biz Evde Yokuz](https://www.youtube.com/channel/UCaDkoFP4OeOzJADcjMOt19g)
 - [Çinde Okuyorum](https://www.youtube.com/channel/UCwu-y2JSZMvEAKyEtWRrOFQ)
 - [Emre Durmuş](https://www.youtube.com/channel/UClCBG771sRO6Ap9s84Je7Eg)
 - [Geziyorum Öyleyse Varım](https://www.youtube.com/channel/UCXOQ5aqzcgYdVaGR9eQhHgw)
