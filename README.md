@@ -271,6 +271,7 @@ Faydalı olması dileğiyle...
 - [Hayatını Hafiflet](https://www.youtube.com/channel/UCGsmooF7NIFtZROjPpTQ0WA)
 - [Home Organizing](https://www.youtube.com/channel/UCcvu0uB6SzugED_5FEC7Z0Q)
 - [Nisan Kumru](https://www.youtube.com/channel/UCqOcjhyS2YTZPc50ymIjk4g)
+- [Power Vision](https://www.youtube.com/channel/UCatfiM69M9ZnNhOzy0jZ41A)
 - [Sevilen Reklamlar](https://www.youtube.com/channel/UCB4OkqTmPpled7wDE-n91bw)
 - [Seyit Ali](https://www.youtube.com/channel/UC-oqYfSKloLUCpPFT_mc8Iw)
 
