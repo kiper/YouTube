@@ -142,6 +142,7 @@ Faydalı olması dileğiyle...
 - [Henryk Gasperowicz](https://www.youtube.com/channel/UCNAAxVKWPAbaZiB90_kjDJw)
 - [Jeremy Blum](https://www.youtube.com/channel/UC4KXPjmKwPutGjwFZsEXB5g)
 - [Kendin Yap-Elektronik](https://www.youtube.com/channel/UCBhkCrvkvz5uTyAQMLdB_uA)
+- [The Ben Heck Show](https://www.youtube.com/channel/UChturLXwYxwTOf_5krs0qvA)
 
 ### Make
 - [Applied Science](https://www.youtube.com/channel/UCivA7_KLKWo43tFcCkFvydw)
@@ -159,6 +160,7 @@ Faydalı olması dileğiyle...
 - [Muharrem Taç](https://www.youtube.com/channel/UCS41gzsrl276NbYsqNbzLoA)
 - [Murat Şen](https://www.youtube.com/channel/UCLqQ5u1b5Q-LFfcUCYiKd4Q)
 - [Nejdat Delioğlu](https://www.youtube.com/channel/UCPAD3S_qaC9_nNPcXQXAXQQ)
+- [Power Vision](https://www.youtube.com/channel/UCatfiM69M9ZnNhOzy0jZ41A)
 - [Robotistan](https://www.youtube.com/channel/UCdApqdx1L1qdxjSK2dZmgMQ)
 - [Robotzade](https://www.youtube.com/channel/UCEFeXqO67rbu_-Sj9nppacA)
 - [Tinkernut](https://www.youtube.com/channel/UCZDA1kA3y3EIg25BpcHSpwQ)
@@ -271,7 +273,6 @@ Faydalı olması dileğiyle...
 - [Hayatını Hafiflet](https://www.youtube.com/channel/UCGsmooF7NIFtZROjPpTQ0WA)
 - [Home Organizing](https://www.youtube.com/channel/UCcvu0uB6SzugED_5FEC7Z0Q)
 - [Nisan Kumru](https://www.youtube.com/channel/UCqOcjhyS2YTZPc50ymIjk4g)
-- [Power Vision](https://www.youtube.com/channel/UCatfiM69M9ZnNhOzy0jZ41A)
 - [Sevilen Reklamlar](https://www.youtube.com/channel/UCB4OkqTmPpled7wDE-n91bw)
 - [Seyit Ali](https://www.youtube.com/channel/UC-oqYfSKloLUCpPFT_mc8Iw)
 
