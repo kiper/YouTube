@@ -482,6 +482,7 @@ Faydalı olması dileğiyle...
 - [3'ün Biri](https://www.youtube.com/channel/UCxaLbyIqaUHVyaaeiVwAh8w)
 - [Alakasiz Sohbetler](https://www.youtube.com/channel/UC9kLfMawN5NQFJ6ZmCJBsng)
 - [Good Mythical Morning](https://www.youtube.com/channel/UC4PooiX37Pld1T8J5SYT-SQ)
+- [Hayat Üzerine Kısa Düşünceler](https://www.youtube.com/channel/UCtpLtZDvVHG4mpv4aed8Pzg)
 - [Müebbet Muhabbet](https://www.youtube.com/channel/UCogJiJqx8I6ZoPaRKsdwgaA)
 
 ## Vlog
