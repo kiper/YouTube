@@ -283,6 +283,7 @@ Faydalı olması dileğiyle...
 - [İbrahim Sargın](https://www.youtube.com/channel/UCQ0D2zF10myx9V-GBawQwDQ)
 - [Karınca Çiftliğim](https://www.youtube.com/channel/UCoW90c81k-cojkMAQroguhA)
 - [Primitive Technology](https://www.youtube.com/channel/UCAL3JXZSzSm8AlZyD3nQdBA)
+- [Ruhun Doysun](https://www.youtube.com/channel/UCsliwyuDuMwNEj137mBtcTA)
 - [Serdar Kılıç](https://www.youtube.com/channel/UCYQHQoeXa54tR06L1h_jG3A)
 - [TarraDarraBros](https://www.youtube.com/channel/UCkVa-0nz73GpLfjKcHk_fhA)
 - [Urban Hunterz](https://www.youtube.com/channel/UC6Egkvv7HVXbd-AvBC3L9uw)
