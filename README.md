@@ -388,6 +388,7 @@ Faydalı olması dileğiyle...
 
 ### Kritik
 - [Bu Filme Gidilir](https://www.youtube.com/channel/UCNVwUaeQjdhxdhsUEQcfLWg)
+- [Bobin Kafa](https://www.youtube.com/channel/UCMB8EzN-u5FJ5hPzQNyGH5A)
 - [CinemaSins](https://www.youtube.com/channel/UCYUQQgogVeQY8cMQamhHJcg)
 - [DMG Studios](https://www.youtube.com/channel/UCnjXq2Rwe08t_O3Va1V_mUA)
 - [Every Frame a Painting](https://www.youtube.com/channel/UCjFqcJQXGZ6T6sxyFB-5i6A)
