@@ -405,6 +405,7 @@ Faydalı olması dileğiyle...
 
 ### Eğitim
 - [Eylem Planı](https://www.youtube.com/channel/UC6z_6PYThGU02RSUDOuSdcQ)
+- [İstanbul Film Akademi](https://www.youtube.com/channel/UCZmqyw-4nh_aKcOGgKN4dkA)
 - [Kısa Kafası](https://www.youtube.com/channel/UCHKzirtwZKvVTkxRW_-qTVQ)
 - [Video Montaj](https://www.youtube.com/channel/UCvilZjmRi8oHAgF7l32soiA)
 
