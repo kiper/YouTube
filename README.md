@@ -239,6 +239,7 @@ Faydalı olması dileğiyle...
 - [PNPtutorials](https://www.youtube.com/channel/UCjTTeMYiWzfrKg5_i0cIkyA)
 - [PureCode](https://www.youtube.com/channel/UCB-KaodiHgHVKV-kD0V9Wsg)
 - [Selman Kahya](https://www.youtube.com/channel/UC9Z-Gc_BkYuW75jKcTJICJA)
+- [Siber Güvenlik Akademisi](https://www.youtube.com/channel/UCjZcTUoYCR5nLj8G1riUvLw)
 - [Simone Giertz](https://www.youtube.com/channel/UC3KEoMzNz8eYnwBC34RaKCQ)
 - [Simple Programmer](https://www.youtube.com/channel/UCFxdcuY-S6yjZGq_2cjilHg)
 - [Tasarım Mutfağı](https://www.youtube.com/channel/UC3ZTOY_c_a0MLJ4hUlv0Mlw)
