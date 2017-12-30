@@ -208,6 +208,7 @@ Faydalı olması dileğiyle...
 - [Niyazi Saral](https://www.youtube.com/channel/UC5TKpz_j5ogKw9JnzmVBYRg)
 - [Oguzhan B](https://www.youtube.com/channel/UCm0GxyG2nS46qBJaDonSkzQ)
 - [Onur Alp Aydın](https://www.youtube.com/channel/UCBlp-c5n6Fi5eLFOQONEPTg)
+- [Özgür Çetin](https://www.youtube.com/channel/UC_-x2-C2F9BrdodeysSjpZQ)
 - [Timur Akkurt](https://www.youtube.com/channel/UCqlmcuPsWrpc-nNprTJXR5w)
 
 ## Bilgisayar
