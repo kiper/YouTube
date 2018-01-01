@@ -318,6 +318,7 @@ Faydalı olması dileğiyle...
 
 ### Oyun
 - [Cengiz's Retro Game Room](https://www.youtube.com/channel/UCs0WTo-u94_0iisdZok64EA)
+- [CS ile Yakın Evren](https://www.youtube.com/channel/UC6q0eGHt5euC8aYLDjhaHpA)
 - [Howard Quin](https://www.youtube.com/channel/UCNiJQV-AbCXLGQ-qaOZZgNg)
 - [Jahrein](https://www.youtube.com/channel/UCfo8l0mgO_eleaditz0EClA)
 - [Konsol Üssü](https://www.youtube.com/channel/UCVPfwYzn7JKp6eH2echqbxg)
