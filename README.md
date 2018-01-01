@@ -33,6 +33,7 @@ Faydalı olması dileğiyle...
 - [Caner Taslaman](https://www.youtube.com/channel/UCS4I04pHV1GzXOAh8DOWMwQ)
 - [Cemre Demirel](https://www.youtube.com/channel/UCR2jlx3ZfuwsZdLMCZuurZQ)
 - [Cübbesiz Mahmut](https://www.youtube.com/channel/UCcSivTJjArHd1ybxAMAPDIA)
+- [Dini Cevaplar](https://www.youtube.com/channel/UCizrUdlabzdgNl2MxrhCnYg)
 - [Emre Dorman](https://www.youtube.com/channel/UC2l2q3JHs8P3Zu8qMKuN-eA)
 - [Fehmi İlkay Çeçen](https://www.youtube.com/channel/UC8m4mz4HLEiSflrT-yCOZfQ)
 - [İdrak-ı İslam](https://www.youtube.com/channel/UCK6_vfpGb-ZdDiI_yl9bMYQ)
