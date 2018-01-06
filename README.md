@@ -178,6 +178,7 @@ Faydalı olması dileğiyle...
 - [Digital Age](https://www.youtube.com/channel/UC2jHmFZ3_n14XctOO88yu6g)
 - [Dijitaller](https://www.youtube.com/channel/UCCp14mxu-TJJ0JODTg-QcCw)
 - [Dünya Halleri](https://www.youtube.com/channel/UCDFllKLMJNTJunvdqCGFSpg)
+- [edelkrone Teknik Paylaşımlar](https://www.youtube.com/channel/UC8i4aJW4SNCT28ZNgbL55JA)
 - [Google](https://www.youtube.com/channel/UCK8sQmJBp8GCxrOtXWBpyEA)
 - [Hardware Plus](https://www.youtube.com/channel/UCyZR2GDbjO7-iBxdTH4V_IQ)
 - [Hyperloop One](https://www.youtube.com/channel/UCgHxCbvEySG5jLmHOT1YkSQ)
