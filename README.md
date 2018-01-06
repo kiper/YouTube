@@ -329,6 +329,7 @@ Faydalı olması dileğiyle...
 - [oyuncak koza tv ERDEM](https://www.youtube.com/channel/UCpnqsPhlBcSdRCARdI4tT0A)
 - [PewDiePie](https://www.youtube.com/channel/UC-lHJZR3Gqxm24_Vd_AJ5Yw)
 - [PintiPanda TV](https://www.youtube.com/channel/UCuU0qYesQjAT_qXcQJqgV3w)
+- [Teoman](https://www.youtube.com/channel/UCjWBcREJ0uh8F-2H_a--Jbw)
 
 ### Spor
 - [AĞIRSAĞLAM](https://www.youtube.com/channel/UCXH9dxtCeB3Gn_QnWnBJaTQ)
