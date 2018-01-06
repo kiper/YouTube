@@ -491,6 +491,7 @@ Faydalı olması dileğiyle...
 ### Sohbet
 - [3'ün Biri](https://www.youtube.com/channel/UCxaLbyIqaUHVyaaeiVwAh8w)
 - [Alakasiz Sohbetler](https://www.youtube.com/channel/UC9kLfMawN5NQFJ6ZmCJBsng)
+- [Erim Özşen](https://www.youtube.com/channel/UCKyrevqzczWG-MgOaRVA4VA)
 - [Good Mythical Morning](https://www.youtube.com/channel/UC4PooiX37Pld1T8J5SYT-SQ)
 - [Hayat Üzerine Kısa Düşünceler](https://www.youtube.com/channel/UCtpLtZDvVHG4mpv4aed8Pzg)
 - [Konuşulacak Şeyler](https://www.youtube.com/channel/UCBM1SvxhAAvjqVF3RBWiCyQ)
