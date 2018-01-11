@@ -319,6 +319,7 @@ Faydalı olması dileğiyle...
 - [Haluk Levent](https://www.youtube.com/channel/UCpIX4bNRuoEfbAiirr5udhA)
 
 ### Oyun
+- [Base 42](https://www.youtube.com/channel/UCoWj9KzdFJn72NnVKScWfYg)
 - [Cengiz's Retro Game Room](https://www.youtube.com/channel/UCs0WTo-u94_0iisdZok64EA)
 - [CS ile Yakın Evren](https://www.youtube.com/channel/UC6q0eGHt5euC8aYLDjhaHpA)
 - [Howard Quin](https://www.youtube.com/channel/UCNiJQV-AbCXLGQ-qaOZZgNg)
