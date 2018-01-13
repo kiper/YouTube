@@ -256,7 +256,7 @@ Faydalı olması dileğiyle...
 - [Yasir Buğra Eryılmaz](https://www.youtube.com/channel/UCzVicfgMpYn23PcnMboJKtw)
 - [Özcan Acar](https://www.youtube.com/channel/UCUxr_4MFcbKCfRxDRT7WyzQ)
 
-### Zımbırtı
+### Zamazingo
 - [Bafır Adam](https://www.youtube.com/channel/UCy_mBLD7WMVMjMD0YJO9Ueg)
 - [Donanım Arşivi](https://www.youtube.com/user/TeknoGalaxy)
 - [Gadget Inspiration](https://www.youtube.com/channel/UCCxVLx4edMoGqlFxY8cyOjg)
