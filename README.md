@@ -313,6 +313,7 @@ Faydalı olması dileğiyle...
 - [Tunç Top](https://www.youtube.com/channel/UCOCLz0tSlOH3ubMQaW9k51A)
 
 ### Müzik
+- [Anatolian Rock Revival Project](https://www.youtube.com/channel/UCCpTaib_e5C6Q95qwazq8OA)
 - [Doğa İçin Çal](https://www.youtube.com/channel/UC_ljiMClHtF16_yNK8o99QA)
 - [Lin Pesto](https://www.youtube.com/channel/UCvEyNtbbOsHb1kEqJTkGi9w)
 - [Motto Müzik](https://www.youtube.com/channel/UCCVGqsHKA7nuwJL6FP_K4UQ)
