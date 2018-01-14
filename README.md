@@ -270,6 +270,7 @@ Faydalı olması dileğiyle...
 ## Hobi
 ### Sofistike
 - [Adam Gibi Adam](https://www.youtube.com/channel/UCJsxhcnT25rpvOge6UunasQ)
+- [Ahmet Turan Köksal](https://www.youtube.com/channel/UCUN-J9sl3y_jcJtP4u3fYow)
 - [Bob Ross](https://www.youtube.com/channel/UCxcnsr1R5Ge_fbTu5ajt8DQ)
 - [Erdi Karadeniz](https://www.youtube.com/channel/UCtnLBhzwHCDPW9TkD7n-1BA)
 - [Fakir Foturafcı](https://www.youtube.com/channel/UCtk-_6EEQ0luVPCHrRoirRw)
