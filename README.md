@@ -165,6 +165,7 @@ Faydalı olması dileğiyle...
 - [Power Vision](https://www.youtube.com/channel/UCatfiM69M9ZnNhOzy0jZ41A)
 - [Robotistan](https://www.youtube.com/channel/UCdApqdx1L1qdxjSK2dZmgMQ)
 - [Robotzade](https://www.youtube.com/channel/UCEFeXqO67rbu_-Sj9nppacA)
+- [Sezer Duino](https://www.youtube.com/channel/UChkK_bAvF0D61Lr5vABgomw)
 - [Tinkernut](https://www.youtube.com/channel/UCZDA1kA3y3EIg25BpcHSpwQ)
 
 ### Sohbet
