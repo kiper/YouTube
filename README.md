@@ -243,6 +243,7 @@ Faydalı olması dileğiyle...
 - [Onur Gürler](https://www.youtube.com/channel/UCYly5dEMjl5fpt1GTpxGLHQ)
 - [Ömer Yiğit Aker](https://www.youtube.com/channel/UCRo92zrc6Um-eM2_3YbMXKg)
 - [PNPtutorials](https://www.youtube.com/channel/UCjTTeMYiWzfrKg5_i0cIkyA)
+- [Prototürk](https://www.youtube.com/channel/UC1VAnqF9VLHNXngLwpov4kA)
 - [PureCode](https://www.youtube.com/channel/UCB-KaodiHgHVKV-kD0V9Wsg)
 - [Selman Kahya](https://www.youtube.com/channel/UC9Z-Gc_BkYuW75jKcTJICJA)
 - [Siber Güvenlik Akademisi](https://www.youtube.com/channel/UCjZcTUoYCR5nLj8G1riUvLw)
