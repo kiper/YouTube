@@ -135,15 +135,23 @@ Faydalı olması dileğiyle...
 ### Elektrik - Elektronik
 - [Afrotechmods](https://www.youtube.com/channel/UCosnWgi3eorc1klEQ8pIgJQ)
 - [Ahmet Erboğa](https://www.youtube.com/channel/UCneEYmgw60GxjQbO3awbQFQ)
+- [Andreas Spiess](https://www.youtube.com/channel/UCu7_D0o48KbfhpEohoP7YSQ)
+- [bitluni's lab](https://www.youtube.com/channel/UCp_5PO66faM4dBFbFFBdPSQ)
+- [Brian Lough](https://www.youtube.com/channel/UCezJOfu7OtqGzd5xrP3q6WA)
+- [CNLohr](https://www.youtube.com/channel/UCG7yIWtVwcENg_ZS-nahg5g)
 - [Coskun Tasdemir](https://www.youtube.com/channel/UCbaiMGl1Yatfn2kFAy9Bbow)
 - [EEVblog](https://www.youtube.com/channel/UC2DjFE7Xf11URZqWBigcVOQ)
 - [ElectroBOOM](https://www.youtube.com/channel/UCJ0-OtVpF0wOKEqT2Z1HEtA)
 - [Elektro İnceleme](https://www.youtube.com/channel/UCLVy_3GP3ISAKtxALGWS2UQ)
 - [elekTRofizikci](https://www.youtube.com/channel/UCgKabubhWZaEOsTQM-FrAsw)
 - [GreatScott!](https://www.youtube.com/channel/UC6mIxFTvXkWQVEHPsEdflzQ)
+- [Hari Wiguna](https://www.youtube.com/channel/UCBr51Py25hm9-cjCQbUaHiQ)
 - [Henryk Gasperowicz](https://www.youtube.com/channel/UCNAAxVKWPAbaZiB90_kjDJw)
+- [ItKindaWorks](https://www.youtube.com/channel/UCOnMlI1Si4i0O2Wkz-XReww)
 - [Jeremy Blum](https://www.youtube.com/channel/UC4KXPjmKwPutGjwFZsEXB5g)
 - [Kendin Yap-Elektronik](https://www.youtube.com/channel/UCBhkCrvkvz5uTyAQMLdB_uA)
+- [learnelectronics](https://www.youtube.com/channel/UCSRTiJhBE5GsP-1fCbpFRWg)
+- [Marco Reps](https://www.youtube.com/channel/UC1O0jDlG51N3jGf6_9t-9mw)
 - [The Ben Heck Show](https://www.youtube.com/channel/UChturLXwYxwTOf_5krs0qvA)
 
 ### Make
