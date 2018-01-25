@@ -112,6 +112,7 @@ Faydalı olması dileğiyle...
 - [SokakRoportajlari.com](https://www.youtube.com/channel/UCsECvuwn_UviZl-nvq7uflQ)
 - [Stolk](https://www.youtube.com/channel/UCvUbNqBKY_uHAfgs-xacGdQ)
 - [The Great War](https://www.youtube.com/channel/UCUcyEsEjhPEDf69RRVhRh4A)
+- [TRT World](https://www.youtube.com/channel/UC7fWeaHhqgM4Ry-RMpM2YYw)
 - [ViBio](https://www.youtube.com/channel/UCsJO5eIN6iKH8amd0igwTzA)
 - [Vox](https://www.youtube.com/channel/UCLXo7UDZvByw2ixzpQCufnA)
 - [Well... Actually](https://www.youtube.com/channel/UCLzELCDHdDfPaJSZ-BJTawA)
