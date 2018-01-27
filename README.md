@@ -379,6 +379,7 @@ Faydalı olması dileğiyle...
 - [Kitap Oburu](https://www.youtube.com/channel/UC1CRZkQKUXbqAXRfOQ3avuQ)
 - [Mutant Serçe](https://www.youtube.com/channel/UCrHQrEvPuYGbaB37JB10M1g)
 - [Ozan Dagdeviren](https://www.youtube.com/channel/UCcoRZFbMkT9dv76nI-3icsA)
+- [Senaryo Doktoru](https://www.youtube.com/channel/UCPY7BOXTDZRi2a9sQlJD3HA)
 - [Sesli Kitap Dükkanı](https://www.youtube.com/channel/UC6qko0LIIaajt9leHxXRHsw)
 - [Çizgi Roman Yolculuğu](https://www.youtube.com/channel/UCrfWBWRmXmp-KDvFfD8lsAQ)
 
