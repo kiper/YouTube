@@ -450,6 +450,7 @@ Faydalı olması dileğiyle...
 - [PsikoSeyir](https://www.youtube.com/channel/UCRNKLJqhNHJ_5mGmIoZwD2A)
 
 ## Eğlence
+- [amankaptan](https://www.youtube.com/channel/UCfjfZPu1JR71w_czq8D_mFA)
 - [Batesmotelpro](https://www.youtube.com/channel/UCPA4qIqVrrq71uzW02DVKRQ)
 - [Bilgi Şehri](https://www.youtube.com/channel/UC2aY7WWK6lc6Yf9On235gZQ)
 - [Cem Yılmaz](https://www.youtube.com/channel/UCBfQnAjHnWyFRmUQ4Rf8CGw)
