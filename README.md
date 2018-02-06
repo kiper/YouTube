@@ -182,6 +182,7 @@ Faydalı olması dileğiyle...
 ### Sohbet
 - [Bilişim Sohbetleri](https://www.youtube.com/channel/UCVxEtFhZvAzyVfKvwlcuzzQ)
 - [ENGINEERED TRUTH](https://www.youtube.com/channel/UChj0w0duKtp7SDd_X9CNptw)
+- [Klavye Delikanlıları](https://www.youtube.com/channel/UCwCqRr9zfJbDkvwqQtnNOjg)
 - [Teknik Sohbet](https://www.youtube.com/channel/UCWtRyjYIkzmwoNO3MGZOhNg)
 
 ## Teknoloji
