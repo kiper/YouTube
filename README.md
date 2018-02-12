@@ -449,6 +449,7 @@ Faydalı olması dileğiyle...
 - [Gri Koç](https://www.youtube.com/channel/UCNsSKuUoclUlWzRdbNq7D0w)
 - [İbrahim Bilgen](https://www.youtube.com/channel/UC-JW3nX-bkX67u78IeGkv7w)
 - [Pozitron PDR](https://www.youtube.com/channel/UCEfsMH2eIWJ9cEMrVH2s1_A)
+- [Psikolog Hasan Arslan](https://www.youtube.com/channel/UCM1N4Zr9_2jqJwlj9hhXfnQ)
 - [Psikoloji TV](https://www.youtube.com/channel/UCEpzQk829RfkBIUmwg54g9A)
 - [PsikoSeyir](https://www.youtube.com/channel/UCRNKLJqhNHJ_5mGmIoZwD2A)
 
