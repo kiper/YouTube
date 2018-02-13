@@ -446,6 +446,7 @@ Faydalı olması dileğiyle...
 - [Fanatik Klasik Film](https://www.youtube.com/channel/UCfIf5PT-O5D6OjWMxGhF0kQ)
 
 ## Psikoloji
+- [Doğan Cüceloğlu](https://www.youtube.com/channel/UCb1PVUbLFLAszmQbwzczZ5w)
 - [Gri Koç](https://www.youtube.com/channel/UCNsSKuUoclUlWzRdbNq7D0w)
 - [İbrahim Bilgen](https://www.youtube.com/channel/UC-JW3nX-bkX67u78IeGkv7w)
 - [Pozitron PDR](https://www.youtube.com/channel/UCEfsMH2eIWJ9cEMrVH2s1_A)
