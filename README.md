@@ -458,6 +458,7 @@ Faydalı olması dileğiyle...
 - [amankaptan](https://www.youtube.com/channel/UCfjfZPu1JR71w_czq8D_mFA)
 - [Batesmotelpro](https://www.youtube.com/channel/UCPA4qIqVrrq71uzW02DVKRQ)
 - [Bilgi Şehri](https://www.youtube.com/channel/UC2aY7WWK6lc6Yf9On235gZQ)
+- [Chaby Han](https://www.youtube.com/channel/UC2p99S8BCkrQETkdIeQ-AmA)
 - [Cem Yılmaz](https://www.youtube.com/channel/UCBfQnAjHnWyFRmUQ4Rf8CGw)
 - [Çağlar Avcıl](https://www.youtube.com/channel/UCT6eRgDgQa49OPWwGZqFWoQ)
 - [Danla Bilic](https://www.youtube.com/channel/UCJXKKGzjjqnHAEkJsdC7ZKw)
