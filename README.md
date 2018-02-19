@@ -513,6 +513,7 @@ Faydalı olması dileğiyle...
 - [Ankara Hatırası](https://www.youtube.com/channel/UCP3BMKKccHvATLzhD_dMX_A)
 - [Batık Hikayeler](https://www.youtube.com/channel/UCkh3jh40lzg7pFP1HBHmqJQ)
 - [bi'kafalar](https://www.youtube.com/channel/UC3wsa5uu4-OeVEZhiB7sLug)
+- [Bir İhracat Hikayesi](https://www.youtube.com/channel/UCBO3Hg_MLLp88PyVFAmsEkQ)
 - [Cep Hikayeleri](https://www.youtube.com/channel/UCaMkVc_bfovLxz40vrmEtWQ)
 - [Çay Kahve İnsan](https://www.youtube.com/channel/UCD37i3UdHYc9MJ1MnuQ6n2Q)
 - [Stories](https://www.youtube.com/channel/UCJsSEDFFnMFvW9JWU6XUn0Q)
