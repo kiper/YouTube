@@ -44,10 +44,8 @@ Faydalı olması dileğiyle...
 - [Nerdwriter1](https://www.youtube.com/channel/UCJkMlOu7faDgqh4PfzbpLdg)
 - [PANDORA Felsefe](https://www.youtube.com/channel/UCK_ZTcI31cX_LkCwcn3uBQw)
 - [PBS Idea Channel]( https://www.youtube.com/channel/UC3LqW4ijMoENQ2Wv17ZrFJA)
-- [Sahn-ı Seman](https://www.youtube.com/channel/UCUcThWuFqCpT2dIzV9Bjdag)
 - [Sinirli Liberteryen](https://www.youtube.com/channel/UCkEJ6lrXDfD-jSDppTyFciQ)
 - [Sorgulayan Müslüman]( https://www.youtube.com/channel/UCUnBTGzROoxEEXLynu3J6Yg)
-- [Sosyal Doku](https://www.youtube.com/channel/UC5V_BTDvg_aOYZos9Cyb4Rg)
 
 ## Orjinal
 - [BaBaLa TV](https://www.youtube.com/channel/UCZ5aOEWFOopXLeiIUd2mfJw)
