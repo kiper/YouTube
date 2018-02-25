@@ -28,24 +28,32 @@ Faydalı olması dileğiyle...
 - [Yemek](#yemek)
 
 ## Felsefe
-- [0Hakikat0](https://www.youtube.com/channel/UCtRmRQ6mLyPFzQTwV8ZNJew)
-- [Alper Bilgili](https://www.youtube.com/channel/UCKJSN6gHxZo0GQE44ehaaFA)
-- [Caner Taslaman](https://www.youtube.com/channel/UCS4I04pHV1GzXOAh8DOWMwQ)
-- [Cemre Demirel](https://www.youtube.com/channel/UCR2jlx3ZfuwsZdLMCZuurZQ)
-- [Cübbesiz Mahmut](https://www.youtube.com/channel/UCcSivTJjArHd1ybxAMAPDIA)
-- [Dini Cevaplar](https://www.youtube.com/channel/UCizrUdlabzdgNl2MxrhCnYg)
-- [Emre Dorman](https://www.youtube.com/channel/UC2l2q3JHs8P3Zu8qMKuN-eA)
-- [Fehmi İlkay Çeçen](https://www.youtube.com/channel/UC8m4mz4HLEiSflrT-yCOZfQ)
-- [İdrak-ı İslam](https://www.youtube.com/channel/UCK6_vfpGb-ZdDiI_yl9bMYQ)
-- [Mekteb-i Suffa](https://www.youtube.com/channel/UCWi9zsx4OyozivIDh7aUNLQ)
 - [Modern Çağ](https://www.youtube.com/channel/UCuD78Y3NEB7PmG5MWyBhezA)
-- [NAK Türkçe](https://www.youtube.com/channel/UCiuZOO35xrYxZXlFLbGqO3A)
 - [Nebuch](https://www.youtube.com/channel/UCsZXtQ487fteg1B6ub5hI_w)
 - [Nerdwriter1](https://www.youtube.com/channel/UCJkMlOu7faDgqh4PfzbpLdg)
 - [PANDORA Felsefe](https://www.youtube.com/channel/UCK_ZTcI31cX_LkCwcn3uBQw)
 - [PBS Idea Channel]( https://www.youtube.com/channel/UC3LqW4ijMoENQ2Wv17ZrFJA)
 - [Sinirli Liberteryen](https://www.youtube.com/channel/UCkEJ6lrXDfD-jSDppTyFciQ)
-- [Sorgulayan Müslüman]( https://www.youtube.com/channel/UCUnBTGzROoxEEXLynu3J6Yg)
+
+### İlahiyat
+#### X
+- [0Hakikat0](https://www.youtube.com/channel/UCtRmRQ6mLyPFzQTwV8ZNJew)
+- [Ahmet Murat Sağlam](https://www.youtube.com/channel/UCyJAy8BsC0aNJT7kqhXDHWA)
+- [Alper Bilgili](https://www.youtube.com/channel/UCKJSN6gHxZo0GQE44ehaaFA)
+- [Caner Taslaman](https://www.youtube.com/channel/UCS4I04pHV1GzXOAh8DOWMwQ)
+- [Cemre Demirel](https://www.youtube.com/channel/UCR2jlx3ZfuwsZdLMCZuurZQ)
+- [Cübbesiz Mahmut](https://www.youtube.com/channel/UCcSivTJjArHd1ybxAMAPDIA)
+- [Dini Cevaplar](https://www.youtube.com/channel/UCizrUdlabzdgNl2MxrhCnYg)
+- [Edip Yüksel]( https://www.youtube.com/channel/UCiPRV1voW4TpoOGTCqThDgg)
+- [Emre Dorman](https://www.youtube.com/channel/UC2l2q3JHs8P3Zu8qMKuN-eA)
+- [Fehmi İlkay Çeçen](https://www.youtube.com/channel/UC8m4mz4HLEiSflrT-yCOZfQ)
+- [Gürkan Engin](https://www.youtube.com/channel/UCnOBZLGbxtMLpeFp_3uKbmw)
+- [İdrak-ı İslam](https://www.youtube.com/channel/UCK6_vfpGb-ZdDiI_yl9bMYQ)
+- [Sorgulayan Müslüman](https://www.youtube.com/channel/UCUnBTGzROoxEEXLynu3J6Yg)
+#### Y
+- [Mekteb-i Suffa](https://www.youtube.com/channel/UCWi9zsx4OyozivIDh7aUNLQ)
+- [Sahn-ı Seman](https://www.youtube.com/channel/UCUcThWuFqCpT2dIzV9Bjdag)
+- [Sosyal Doku](https://www.youtube.com/channel/UC5V_BTDvg_aOYZos9Cyb4Rg)
 
 ## Orjinal
 - [BaBaLa TV](https://www.youtube.com/channel/UCZ5aOEWFOopXLeiIUd2mfJw)
@@ -540,7 +548,6 @@ Faydalı olması dileğiyle...
 - [Deniz Bağdaş](https://www.youtube.com/channel/UC3Xu0FQeizzXhUtthFjFs8g)
 - [Derin Biricik](https://www.youtube.com/channel/UCWIk99HAEeiJZZskZ0day3A)
 - [Devletsah Alhanlıoglu Ozcan](https://www.youtube.com/channel/UCPbeg1Cm0gLf5zpWe9mj9ew)
-- [Ekin Soyak](https://www.youtube.com/channel/UCS2yOd3orzT5LGO09mHsmNQ)
 - [Gözlüklü ve Sakallı](https://www.youtube.com/channel/UCkKJ6R4xeSq79u6UaYYKjuQ)
 - [Hannah Francis](https://www.youtube.com/channel/UCRVysS4Uc76QQOsefANUf0Q)
 - [Hayallerimde Ben](https://www.youtube.com/channel/UCMfkb0zF3Y0NKNeQrgrhctQ)
@@ -554,7 +561,7 @@ Faydalı olması dileğiyle...
 ## Yemek
 - [Abur Cubur Gurmesi](https://www.youtube.com/channel/UCwT7C0W0NRQ22KD10a833gA)
 - [Arda'nın Mutfağı](https://www.youtube.com/channel/UCJ5KzVnmaIIVyLQUCRii2uw)
-- [BİR YEMEK İSTE Suat Durmuş](https://www.youtube.com/channel/UCa6G2pjSPIRRKhixsN4_FBQ)
+- [Bir Yemek İste Suat Durmuş](https://www.youtube.com/channel/UCa6G2pjSPIRRKhixsN4_FBQ)
 - [Devletsah](https://www.youtube.com/channel/UCL2bVOD_LRgifbm2SAVNf8A)
 - [Emir Yargın'la Çakal Lezzetler](https://www.youtube.com/channel/UC9pVsYdQ8HPMpJCzfv8Gw2A)
 - [Epic Meal Time](https://www.youtube.com/channel/UCYjk_zY-iYR8YNfJmuzd70A)
