@@ -565,6 +565,7 @@ Faydalı olması dileğiyle...
 - [Devletsah](https://www.youtube.com/channel/UCL2bVOD_LRgifbm2SAVNf8A)
 - [Emir Yargın'la Çakal Lezzetler](https://www.youtube.com/channel/UC9pVsYdQ8HPMpJCzfv8Gw2A)
 - [Epic Meal Time](https://www.youtube.com/channel/UCYjk_zY-iYR8YNfJmuzd70A)
+- [Gordon Ramsay](https://www.youtube.com/channel/UCIEv3lZ_tNXHzL3ox-_uUGQ)
 - [Merlin Mutfakta](https://www.youtube.com/channel/UC4_ubZfs6fwj9RTSfy5gNuw)
 - [Refika'nın Mutfağı](https://www.youtube.com/channel/UCO3MaQR-Vh6cgBZRlD44jWg)
 - [Tostçu Erol](https://www.youtube.com/channel/UCCLfu2q54Fm_kecw4jj5bhw)
