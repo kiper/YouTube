@@ -49,6 +49,7 @@ Faydalı olması dileğiyle...
 - [Fehmi İlkay Çeçen](https://www.youtube.com/channel/UC8m4mz4HLEiSflrT-yCOZfQ)
 - [Gürkan Engin](https://www.youtube.com/channel/UCnOBZLGbxtMLpeFp_3uKbmw)
 - [İdrak-ı İslam](https://www.youtube.com/channel/UCK6_vfpGb-ZdDiI_yl9bMYQ)
+- [SorguLA](https://www.youtube.com/channel/UC1vgJD8mZg2NtckrIc38g2A)
 - [Sorgulayan Müslüman](https://www.youtube.com/channel/UCUnBTGzROoxEEXLynu3J6Yg)
 #### Y
 - [Mekteb-i Suffa](https://www.youtube.com/channel/UCWi9zsx4OyozivIDh7aUNLQ)
