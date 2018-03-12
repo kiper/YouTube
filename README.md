@@ -60,6 +60,7 @@ Faydalı olması dileğiyle...
 - [BaBaLa TV](https://www.youtube.com/channel/UCZ5aOEWFOopXLeiIUd2mfJw)
 - [Barış Özcan](https://www.youtube.com/channel/UCv6jcPwFujuTIwFQ11jt1Yw)
 - [Basak Kablan](https://www.youtube.com/channel/UCuZ6G466XodI8wchTHLQaxg)
+- [Başka Bir Şey](https://www.youtube.com/channel/UC2lwJdnwpQnO5p5wY2pPHJg)
 - [Big Think](https://www.youtube.com/channel/UCvQECJukTDE2i6aCoMnS-Vg)
 - [Facts.](https://www.youtube.com/channel/UCmEnDJfwzlfVZyDdIznoiww)
 - [Learn Engineering](https://www.youtube.com/channel/UCqZQJ4600a9wIfMPbYc60OQ)
