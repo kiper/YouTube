@@ -134,6 +134,7 @@ Faydalı olması dileğiyle...
 - [Batu Ülker](https://www.youtube.com/channel/UCQtlzJnOrS3fHZYqFxu7A5w)
 - [Evrim Ağacı](https://www.youtube.com/channel/UCatnasFAiXUvWwH8NlSdd3A)
 - [Fizikist](https://www.youtube.com/channel/UCJ3PJyzwpYLII7vsyaTYdNA)
+- [Google Science Fair](https://www.youtube.com/channel/UCAn-f5AvAospCM1Jzgn9QHw)
 - [NASA Armstrong Flight Research Center](https://www.youtube.com/channel/UCLsYrDS9jYL_dO1g8qe2ctw)
 - [Nbeyin](https://www.youtube.com/channel/UCMfDizgQmPcl0x6Hat8WQkw)
 - [Ortapia](https://www.youtube.com/channel/UCgj4OAKzK9Zo8RyrQ6BmCZw)
