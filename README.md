@@ -250,6 +250,7 @@ Faydalı olması dileğiyle...
 - [Aycan Doğanlar](https://www.youtube.com/channel/UCLz_8y8v96M4z2zhhCENKJg)
 - [Bana bir şey öğret!](https://www.youtube.com/channel/UCJBXjSuch7zyUE9kig1wNlA)
 - [BilgisayarKavramlari](https://www.youtube.com/channel/UCkkgrhDCJheXQNIFqUVw0_g)
+- [Bora Kaşmer](https://www.youtube.com/channel/UCEQB9Atxfn5AJgX6KfwvTyA)
 - [Cemal Üyüklü](https://www.youtube.com/channel/UC8k6KAfK9Oe8qzerimM5kwg)
 - [Daron Yondem](https://www.youtube.com/channel/UC7oYHShBoL7srrAVGMXWK0A)
 - [Devnot TV](https://www.youtube.com/channel/UCgKcX7YBsGbdLrZQyOKMLQA)
