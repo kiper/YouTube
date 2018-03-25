@@ -114,6 +114,7 @@ Faydalı olması dileğiyle...
 - [Hikayesi Ne?](https://www.youtube.com/channel/UCjs3Yj1cXXQ1CYvRlpjuY4w)
 - [Kim O?](https://www.youtube.com/channel/UCE2zvRTKeucutU-DFCR814w)
 - [Kurzgesagt](https://www.youtube.com/channel/UCsXVk37bltHxD1rDPwtNM8Q)
+- [Medyascope.tv](https://www.youtube.com/channel/UCNCVuaQDvPrZ4oTKG90iqOA)
 - [Neden?](https://www.youtube.com/channel/UCyFiXIdmt--Mfow6m9mbojA)
 - [Nedir?](https://www.youtube.com/channel/UCOGyaYpd-HKUnGPafwMO7sQ)
 - [RealLifeLore](https://www.youtube.com/channel/UCP5tjEmvPItGyLhmjdwP7Ww)
