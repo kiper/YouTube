@@ -197,6 +197,7 @@ Faydalı olması dileğiyle...
 - [Klavye Delikanlıları](https://www.youtube.com/channel/UCwCqRr9zfJbDkvwqQtnNOjg)
 - [Radyo 521](https://www.youtube.com/channel/UCcCylZwnMsHGsI4lOOyN-WA)
 - [Teknik Sohbet](https://www.youtube.com/channel/UCWtRyjYIkzmwoNO3MGZOhNg)
+- [Yollarda.tv](https://www.youtube.com/channel/UCi-iGmSrkVMQGqJTtnb07fQ)
 
 ## Teknoloji
 ### Firma
