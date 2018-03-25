@@ -309,6 +309,7 @@ Faydalı olması dileğiyle...
 - [Geekyapar!](https://www.youtube.com/channel/UCKkeveNcsI3POExhFO_yg1A)
 - [Hayatını Hafiflet](https://www.youtube.com/channel/UCGsmooF7NIFtZROjPpTQ0WA)
 - [Home Organizing](https://www.youtube.com/channel/UCcvu0uB6SzugED_5FEC7Z0Q)
+- [Keep Productive](https://www.youtube.com/channel/UCYyaQsm2HyneP9CsIOdihBw)
 - [Nisan Kumru](https://www.youtube.com/channel/UCqOcjhyS2YTZPc50ymIjk4g)
 - [Oğulcan Onay](https://www.youtube.com/channel/UC_SE86G_euQtGBNZ_c6Q31A)
 - [Orta Dünya](https://www.youtube.com/channel/UCcRRXESaUXNdNJSdJDRCvWA)
