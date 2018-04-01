@@ -28,6 +28,7 @@ Faydalı olması dileğiyle...
 - [Yemek](#yemek)
 
 ## Felsefe
+- [BanaBirŞeyÖğret](https://www.youtube.com/channel/UCUVd9tjtT-IoFyKTUEgA-RA)
 - [Modern Çağ](https://www.youtube.com/channel/UCuD78Y3NEB7PmG5MWyBhezA)
 - [Nebuch](https://www.youtube.com/channel/UCsZXtQ487fteg1B6ub5hI_w)
 - [Nerdwriter1](https://www.youtube.com/channel/UCJkMlOu7faDgqh4PfzbpLdg)
