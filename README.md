@@ -174,6 +174,7 @@ Faydalı olması dileğiyle...
 - [Arduino Haber](https://www.youtube.com/channel/UCVAJfMAgBurMjEcW3bZcc8A)
 - [Evde Elektronik](https://www.youtube.com/channel/UCecxqEZ4WUywy6EiNhVfbDw)
 - [Gelecek Hane](https://www.youtube.com/channel/UCGR2nGu4OfpKHa_4kEd3sMA)
+- [Hüseyin Aydın](https://www.youtube.com/channel/UCJ7Je6B5uHfQcloZ6W0H7jQ)
 - [Jeri Ellsworth](https://www.youtube.com/channel/UClTpDNIOtgfRkyT-AFGNWVw)
 - [Lezzetli Robot Tarifleri](https://www.youtube.com/channel/UCnD05oNu5qPq_FwF_jfWIlg)
 - [Make:](https://www.youtube.com/channel/UChtY6O8Ahw2cz05PS2GhUbg)
