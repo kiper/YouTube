@@ -60,6 +60,7 @@ Faydalı olması dileğiyle...
 - [İdrak-ı İslam](https://www.youtube.com/channel/UCK6_vfpGb-ZdDiI_yl9bMYQ)
 - [SorguLA](https://www.youtube.com/channel/UC1vgJD8mZg2NtckrIc38g2A)
 - [Sorgulayan Müslüman](https://www.youtube.com/channel/UCUnBTGzROoxEEXLynu3J6Yg)
+- [Tamer Jerusalem](https://www.youtube.com/channel/UCJtJs0N5EWiMkubUTyXK3hA)
 #### Y
 - [Mekteb-i Suffa](https://www.youtube.com/channel/UCWi9zsx4OyozivIDh7aUNLQ)
 - [Sahn-ı Seman](https://www.youtube.com/channel/UCUcThWuFqCpT2dIzV9Bjdag)
