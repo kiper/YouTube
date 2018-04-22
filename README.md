@@ -9,6 +9,7 @@ Faydalı olması dileğiyle...
 
 
 ### Kategori başlıkları
+- [Destek](#destek)
 - [Felsefe](#felsefe)
 - [Orjinal](#orjinal)
 - [Akademi](#akademi)
@@ -26,6 +27,11 @@ Faydalı olması dileğiyle...
 - [Muhabbet](#muhabbet)
 - [Vlog](#vlog)
 - [Yemek](#yemek)
+
+## Destek
+- [Bilge Duman](https://www.youtube.com/channel/UCgrsicjCRQQTBxMN46sdeSw)
+- [Sude Erdem](https://www.youtube.com/channel/UCpnqsPhlBcSdRCARdI4tT0A)
+- [Teoman Akan](https://www.youtube.com/channel/UCjWBcREJ0uh8F-2H_a--Jbw)
 
 ## Felsefe
 - [BanaBirŞeyÖğret](https://www.youtube.com/channel/UCUVd9tjtT-IoFyKTUEgA-RA)
@@ -369,10 +375,8 @@ Faydalı olması dileğiyle...
 - [Konsol Üssü](https://www.youtube.com/channel/UCVPfwYzn7JKp6eH2echqbxg)
 - [Mösyö Pikselans](https://www.youtube.com/channel/UCiS53SzWjDMQ0Z3tVLAi9gw)
 - [Orhun Kayaalp](https://www.youtube.com/channel/UCqV9ovPYhKgbYWg5U1hlGxQ)
-- [oyuncak koza tv ERDEM](https://www.youtube.com/channel/UCpnqsPhlBcSdRCARdI4tT0A)
 - [PewDiePie](https://www.youtube.com/channel/UC-lHJZR3Gqxm24_Vd_AJ5Yw)
 - [PintiPanda TV](https://www.youtube.com/channel/UCuU0qYesQjAT_qXcQJqgV3w)
-- [Teoman](https://www.youtube.com/channel/UCjWBcREJ0uh8F-2H_a--Jbw)
 
 ### Spor
 - [AĞIRSAĞLAM](https://www.youtube.com/channel/UCXH9dxtCeB3Gn_QnWnBJaTQ)
