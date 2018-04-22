@@ -407,6 +407,7 @@ Faydalı olması dileğiyle...
 - [Kayıp Rıhtım](https://www.youtube.com/channel/UC4Sa5v34MFR8bGopKCQQ54A)
 - [Kitap Babası](https://www.youtube.com/channel/UCltwHQrXYiiRPPQOUdatO-Q)
 - [Kitap Oburu](https://www.youtube.com/channel/UC1CRZkQKUXbqAXRfOQ3avuQ)
+- [Küçük Romancı](https://www.youtube.com/channel/UCq-oLY_Lloeq57OkuM8wKnA)
 - [Mutant Serçe](https://www.youtube.com/channel/UCrHQrEvPuYGbaB37JB10M1g)
 - [Ozan Dagdeviren](https://www.youtube.com/channel/UCcoRZFbMkT9dv76nI-3icsA)
 - [Senaryo Doktoru](https://www.youtube.com/channel/UCPY7BOXTDZRi2a9sQlJD3HA)
