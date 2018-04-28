@@ -224,6 +224,7 @@ Faydalı olması dileğiyle...
 - [Koding](https://www.youtube.com/channel/UCXcW1i_rVfxkru5VpYDNJ-g)
 - [Linus Tech Tips](https://www.youtube.com/channel/UCXuqSBlHAE6Xw-yeJA0Tunw)
 - [Mühendis Beyinler](https://www.youtube.com/channel/UCdOTxH-UnuYtqcKzCXcPyrg)
+- [Mühendis Kafalar](https://www.youtube.com/channel/UCZ1BdTVnNqJlttrn-na-4zQ)
 - [Paul's Hardware](https://www.youtube.com/channel/UCvWWf-LYjaujE50iYai8WgQ)
 - [SHERPA](https://www.youtube.com/channel/UCEK2gJnaMNtkKXDqMoRWHDA)
 - [ShiftDelete](https://www.youtube.com/channel/UCzNu79N8Lq1wUY52MkhWKSA)
