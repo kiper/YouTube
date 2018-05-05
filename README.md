@@ -151,6 +151,7 @@ Faydalı olması dileğiyle...
 - [Ortapia](https://www.youtube.com/channel/UCgj4OAKzK9Zo8RyrQ6BmCZw)
 - [Sinan Canan](https://www.youtube.com/channel/UCGlsgo3lOkL5fkRg4XVkjdA)
 - [Sultan Tarlacı](https://www.youtube.com/channel/UCa54ydUCOhKhh-yqCsGBuNw)
+- [Tevfik Uyar](https://www.youtube.com/channel/UCmH29EymWLoDkYEoc9xcWbA)
 - [Umut Yıldız](https://www.youtube.com/channel/UC5_6R9pPdyQ5-t-VQXS7E2A)
 - [Yalansavar](https://www.youtube.com/channel/UCPJMeV-8JzPQOLcP_3dcogA)
 - [Çılgın Fizikçiler ve Bilim İnsanları](https://www.youtube.com/channel/UCY8XjAJrmBRk7aHJrwDX0pw)
