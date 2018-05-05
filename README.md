@@ -389,6 +389,7 @@ Faydalı olması dileğiyle...
 
 ### Zanaat 
 - [Dutch Bushcraft Knives](https://www.youtube.com/channel/UC0k91MwJuS5VvNOJdbDhPYA)
+- [Hand Tool Rescue](https://www.youtube.com/channel/UCasG9kJWi1eVxM0QkyqKVJQ)
 - [Ian Atkinson](https://www.youtube.com/channel/UCLkCG-505-1t0rYlgBTSnpQ)
 - [Marek Tabi](https://www.youtube.com/channel/UC1ylUM7T_Z-j8Eylx7CuPhg)
 - [Steve Ramsey](https://www.youtube.com/channel/UCBB7sYb14uBtk8UqSQYc9-w)
