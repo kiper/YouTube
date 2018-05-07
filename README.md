@@ -330,6 +330,7 @@ Faydalı olması dileğiyle...
 - [Orta Dünya](https://www.youtube.com/channel/UCcRRXESaUXNdNJSdJDRCvWA)
 - [Sevilen Reklamlar](https://www.youtube.com/channel/UCB4OkqTmPpled7wDE-n91bw)
 - [Seyit Ali](https://www.youtube.com/channel/UC-oqYfSKloLUCpPFT_mc8Iw)
+- [Turk Isi Minimalizm] https://www.youtube.com/channel/UCjTzV__6prrg73F66vMTsHQ
 
 ### Doğa
 - [Böcek Reis](https://www.youtube.com/channel/UCId2RDms4kVhfuX_xuTUMug)
