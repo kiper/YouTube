@@ -291,6 +291,7 @@ Faydalı olması dileğiyle...
 - [Simone Giertz](https://www.youtube.com/channel/UC3KEoMzNz8eYnwBC34RaKCQ)
 - [Simple Programmer](https://www.youtube.com/channel/UCFxdcuY-S6yjZGq_2cjilHg)
 - [Tasarım Mutfağı](https://www.youtube.com/channel/UC3ZTOY_c_a0MLJ4hUlv0Mlw)
+- [The 8-Bit Guy](https://www.youtube.com/channel/UC8uT9cgJorJPWu7ITLGo9Ww)
 - [The Coding Train](https://www.youtube.com/channel/UCvjgXvBlbQiydffZU7m1_aw)
 - [TheLastCodeBenders](https://www.youtube.com/channel/UCHqSJVhWoSU-Pf1RuC-rFUQ)
 - [TP-Link ile Akıllı Yaşam](https://www.youtube.com/channel/UCkF-zoA_WoHNiilmUXAkPog)
