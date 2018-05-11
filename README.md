@@ -153,6 +153,7 @@ Faydalı olması dileğiyle...
 - [Sultan Tarlacı](https://www.youtube.com/channel/UCa54ydUCOhKhh-yqCsGBuNw)
 - [Tevfik Uyar](https://www.youtube.com/channel/UCmH29EymWLoDkYEoc9xcWbA)
 - [Umut Yıldız](https://www.youtube.com/channel/UC5_6R9pPdyQ5-t-VQXS7E2A)
+- [Veritasium](https://www.youtube.com/channel/UCHnyfMqiRRG1u-2MsSQLbXA)
 - [Yalansavar](https://www.youtube.com/channel/UCPJMeV-8JzPQOLcP_3dcogA)
 - [Çılgın Fizikçiler ve Bilim İnsanları](https://www.youtube.com/channel/UCY8XjAJrmBRk7aHJrwDX0pw)
 
