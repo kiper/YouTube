@@ -363,6 +363,7 @@ Faydalı olması dileğiyle...
 - [Hakan Akben](https://www.youtube.com/channel/UCnMl6YUso6E-NTuidid73NQ)
 - [Hasan Basusta](https://www.youtube.com/channel/UCPb8g9trPbtRUXEwaRTuiJQ)
 - [Murat Kendugan](https://www.youtube.com/channel/UCpESV2fqvXqxxmLOoawNapA)
+- [Para Nerede?](https://www.youtube.com/channel/UCfLJ5rDkE2x-ann41bLR_SQ)
 - [Tunç Top](https://www.youtube.com/channel/UCOCLz0tSlOH3ubMQaW9k51A)
 
 ### Müzik
