@@ -592,6 +592,7 @@ Faydalı olması dileğiyle...
 - [Bir Yemek İste Suat Durmuş](https://www.youtube.com/channel/UCa6G2pjSPIRRKhixsN4_FBQ)
 - [Devletsah](https://www.youtube.com/channel/UCL2bVOD_LRgifbm2SAVNf8A)
 - [Emir Yargın'la Çakal Lezzetler](https://www.youtube.com/channel/UC9pVsYdQ8HPMpJCzfv8Gw2A)
+- [Fit Yemek](https://www.youtube.com/channel/UCQnrrEf_tNszMZc0mv5P8_g)
 - [Epic Meal Time](https://www.youtube.com/channel/UCYjk_zY-iYR8YNfJmuzd70A)
 - [Gordon Ramsay](https://www.youtube.com/channel/UCIEv3lZ_tNXHzL3ox-_uUGQ)
 - [Merlin Mutfakta](https://www.youtube.com/channel/UC4_ubZfs6fwj9RTSfy5gNuw)
