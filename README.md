@@ -399,6 +399,7 @@ Faydalı olması dileğiyle...
 - [Ian Atkinson](https://www.youtube.com/channel/UCLkCG-505-1t0rYlgBTSnpQ)
 - [Marek Tabi](https://www.youtube.com/channel/UC1ylUM7T_Z-j8Eylx7CuPhg)
 - [Steve Ramsey](https://www.youtube.com/channel/UCBB7sYb14uBtk8UqSQYc9-w)
+- [the Hacksmith](https://www.youtube.com/channel/UCjgpFI5dU-D1-kh9H1muoxQ)
 - [Torbjörn Åhman](https://www.youtube.com/channel/UCSFaYYQzNMLo2U6rSNLpghg)
 - [Woodworking Masterclass](https://www.youtube.com/channel/UCamxdpLgM4yPF5fgxzG2y5g)
 
