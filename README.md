@@ -492,6 +492,7 @@ Faydalı olması dileğiyle...
 - [PsikoSeyir](https://www.youtube.com/channel/UCRNKLJqhNHJ_5mGmIoZwD2A)
 
 ## Eğlence
+- [Afrikali Birkafa1](https://www.youtube.com/channel/UCUKxe0OKP4IpRkZIMj5V5aQ)
 - [amankaptan](https://www.youtube.com/channel/UCfjfZPu1JR71w_czq8D_mFA)
 - [Aykut Elmas](https://www.youtube.com/channel/UCKGjxtjicr5sw9CIOqY69fQ)
 - [Batesmotelpro](https://www.youtube.com/channel/UCPA4qIqVrrq71uzW02DVKRQ)
