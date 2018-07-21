@@ -567,6 +567,7 @@ Faydalı olması dileğiyle...
 - [Hayat Üzerine Kısa Düşünceler](https://www.youtube.com/channel/UCtpLtZDvVHG4mpv4aed8Pzg)
 - [Konuşulacak Şeyler](https://www.youtube.com/channel/UCBM1SvxhAAvjqVF3RBWiCyQ)
 - [Müebbet Muhabbet](https://www.youtube.com/channel/UCogJiJqx8I6ZoPaRKsdwgaA)
+- [Selcan Aydın](https://www.youtube.com/channel/UC6HysWJ-ufy_aqZoGSDhDdg)
 
 ## Vlog
 - [Ataberk Özdemir](https://www.youtube.com/channel/UCYsEqxGEQtKU9toJLE4hoJg)
