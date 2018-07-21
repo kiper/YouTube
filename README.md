@@ -145,6 +145,7 @@ Faydalı olması dileğiyle...
 - [Basfi ile Deneysel Bilim]( https://www.youtube.com/channel/UCnAlXnZRNikus5wf4BPu4_A)
 - [Batu Ülker](https://www.youtube.com/channel/UCQtlzJnOrS3fHZYqFxu7A5w)
 - [Evrim Ağacı](https://www.youtube.com/channel/UCatnasFAiXUvWwH8NlSdd3A)
+- [Efe M. Çetin](https://www.youtube.com/channel/UCQL-qdOPrEguwStzPDFLXGA)
 - [Fizikist](https://www.youtube.com/channel/UCJ3PJyzwpYLII7vsyaTYdNA)
 - [Google Science Fair](https://www.youtube.com/channel/UCAn-f5AvAospCM1Jzgn9QHw)
 - [NASA Armstrong Flight Research Center](https://www.youtube.com/channel/UCLsYrDS9jYL_dO1g8qe2ctw)
