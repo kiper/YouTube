@@ -354,6 +354,7 @@ Faydalı olması dileğiyle...
 - [İki Teker Bir Adam](https://www.youtube.com/channel/UCXZLCj44uBbkE6C_viOEQqQ)
 - [İkiTekeriz](https://www.youtube.com/channel/UCjNGc0eYlO_Q6cPiEpJzY3w)
 - [Otomobilin Mesut Abisi](https://www.youtube.com/channel/UC_IUrN0z7rurfa2DZyPwUXQ)
+- [Sekizsilindir](https://www.youtube.com/channel/UCHLeANrhVQ13NhpAia5tdJw)
 - [Velespit.net](https://www.youtube.com/channel/UCekNEzmiz5jqglzLyQSDTQA)
 
 ### İş
