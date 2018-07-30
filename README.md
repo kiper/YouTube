@@ -584,7 +584,6 @@ Faydalı olması dileğiyle...
 - [Gözlüklü ve Sakallı](https://www.youtube.com/channel/UCkKJ6R4xeSq79u6UaYYKjuQ)
 - [Hannah Francis](https://www.youtube.com/channel/UCRVysS4Uc76QQOsefANUf0Q)
 - [Hayallerimde Ben](https://www.youtube.com/channel/UCMfkb0zF3Y0NKNeQrgrhctQ)
-- [İlkay Zaman](https://www.youtube.com/channel/UCFXD8GPjvUe8TSkqPTH3NNg)
 - [İlker Gümüşoluk](https://www.youtube.com/channel/UCETD8D52LKnFoqZzjWuPzQg)
 - [Mehmet Atilla Atasever](https://www.youtube.com/channel/UCFTh4yLSMBKUa2dPIkFO-DQ)
 - [Sarp Bozkurt](https://www.youtube.com/channel/UC_d52Mekb_SxZaXXe82YABw)
