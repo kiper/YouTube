@@ -577,6 +577,7 @@ Faydalı olması dileğiyle...
 - [Aylin Yi](https://www.youtube.com/channel/UCzR904VGFlJt3v3v7qPryAg)
 - [Ağır Mimar](https://www.youtube.com/channel/UC0aE6IjH6GWDXUTgA5b_59g)
 - [Barış Çimen](https://www.youtube.com/channel/UC37ngv1vX2a0nXCcniVViPw)
+- [Burak Sınava Girecek](https://www.youtube.com/channel/UC2_ZkYUtEze3h4NPzV-p9mA)
 - [Bülent Şakrak](https://www.youtube.com/channel/UC8bp4bt79N5XfLJ2n54jaGQ)
 - [Cansu Canan Özgen](https://www.youtube.com/channel/UCpSbJr7VqLhd3kH39MzuTUQ)
 - [CaseyNeistat](https://www.youtube.com/channel/UCtinbF-Q-fVthA0qrFQTgXQ)
