@@ -204,6 +204,7 @@ Faydalı olması dileğiyle...
 - [Robotzade](https://www.youtube.com/channel/UCEFeXqO67rbu_-Sj9nppacA)
 - [SeanHodgins](https://www.youtube.com/channel/UCE-bw6PRKuDlH6fP1mP4nOw)
 - [Sezer Duino](https://www.youtube.com/channel/UChkK_bAvF0D61Lr5vABgomw)
+- [Simone Giertz](https://www.youtube.com/channel/UC3KEoMzNz8eYnwBC34RaKCQ)
 - [Tinkernut](https://www.youtube.com/channel/UCZDA1kA3y3EIg25BpcHSpwQ)
 
 ### Sohbet
@@ -291,7 +292,6 @@ Faydalı olması dileğiyle...
 - [Selman Kahya](https://www.youtube.com/channel/UC9Z-Gc_BkYuW75jKcTJICJA)
 - [Selman Kahya | Teknik](https://www.youtube.com/channel/UCmp2rZ-cJJ_TQupBzzR7LdA)
 - [Siber Güvenlik Akademisi](https://www.youtube.com/channel/UCjZcTUoYCR5nLj8G1riUvLw)
-- [Simone Giertz](https://www.youtube.com/channel/UC3KEoMzNz8eYnwBC34RaKCQ)
 - [Tasarım Mutfağı](https://www.youtube.com/channel/UC3ZTOY_c_a0MLJ4hUlv0Mlw)
 - [The 8-Bit Guy](https://www.youtube.com/channel/UC8uT9cgJorJPWu7ITLGo9Ww)
 - [The Coding Train](https://www.youtube.com/channel/UCvjgXvBlbQiydffZU7m1_aw)
