@@ -292,7 +292,6 @@ Faydalı olması dileğiyle...
 - [Selman Kahya | Teknik](https://www.youtube.com/channel/UCmp2rZ-cJJ_TQupBzzR7LdA)
 - [Siber Güvenlik Akademisi](https://www.youtube.com/channel/UCjZcTUoYCR5nLj8G1riUvLw)
 - [Simone Giertz](https://www.youtube.com/channel/UC3KEoMzNz8eYnwBC34RaKCQ)
-- [Simple Programmer](https://www.youtube.com/channel/UCFxdcuY-S6yjZGq_2cjilHg)
 - [Tasarım Mutfağı](https://www.youtube.com/channel/UC3ZTOY_c_a0MLJ4hUlv0Mlw)
 - [The 8-Bit Guy](https://www.youtube.com/channel/UC8uT9cgJorJPWu7ITLGo9Ww)
 - [The Coding Train](https://www.youtube.com/channel/UCvjgXvBlbQiydffZU7m1_aw)
@@ -486,6 +485,7 @@ Faydalı olması dileğiyle...
 - [Fanatik Klasik Film](https://www.youtube.com/channel/UCfIf5PT-O5D6OjWMxGhF0kQ)
 
 ## Psikoloji
+- [Bulldog Mindset](https://www.youtube.com/channel/UCFxdcuY-S6yjZGq_2cjilHg)
 - [Doğan Cüceloğlu](https://www.youtube.com/channel/UCb1PVUbLFLAszmQbwzczZ5w)
 - [Gri Koç](https://www.youtube.com/channel/UCNsSKuUoclUlWzRdbNq7D0w)
 - [İbrahim Bilgen](https://www.youtube.com/channel/UC-JW3nX-bkX67u78IeGkv7w)
