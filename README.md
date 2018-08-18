@@ -277,6 +277,7 @@ Faydalı olması dileğiyle...
 - [Eray Aktokluk](https://www.youtube.com/channel/UCRpj7B8BxAG0HG86gP50qmQ)
 - [Fatih Acet](https://www.youtube.com/channel/UCvANtNYHe556zUWm6VzJenQ)
 - [Fatih Arslan](https://www.youtube.com/channel/UCbUr0322a84OUtaqtcflYmA)
+- [Hakan Ertan](https://www.youtube.com/channel/UCfrO4EyEc3N5TaunnfX1uHQ)
 - [Hamza Akbulut](https://www.youtube.com/channel/UCXWEna8f8Xnn6A8iw0pz-dQ)
 - [Kenan Abdullahoglu](https://www.youtube.com/channel/UC5wR13TL33-28I5UzndCuZQ)
 - [Kod demleme](https://www.youtube.com/channel/UCjekbqvm1FSKhrA_mvnBfIg)
