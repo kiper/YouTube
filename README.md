@@ -504,6 +504,7 @@ Faydalı olması dileğiyle...
 - [Chaby Han](https://www.youtube.com/channel/UC2p99S8BCkrQETkdIeQ-AmA)
 - [Cem Yılmaz](https://www.youtube.com/channel/UCBfQnAjHnWyFRmUQ4Rf8CGw)
 - [Çağlar Avcıl](https://www.youtube.com/channel/UCT6eRgDgQa49OPWwGZqFWoQ)
+- [Daily Dose Of Internet](https://www.youtube.com/channel/UCdC0An4ZPNr_YiFiYoVbwaw)
 - [Deep Turkish Web](https://www.youtube.com/channel/UCMR6t4P2TqXOjVq3qgvo6gg)
 - [Educatedear](https://www.youtube.com/channel/UCHvluQBRDHmi4zMFnKJdaHQ)
 - [Enes ve Tolga](https://www.youtube.com/channel/UCI0wzffVVTLmoFQBF3GWupQ)
