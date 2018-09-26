@@ -236,6 +236,7 @@ Faydalı olması dileğiyle...
 - [Technopat](https://www.youtube.com/channel/UC-gs6ml23jQKvLC86LzpQ0g)
 - [Teknobiyotik](https://www.youtube.com/channel/UCcA09xcYmE0INP_78QU7Qxw)
 - [Teknolojiden Anlamayan Adam](https://www.youtube.com/channel/UCY_iGgUu-gi1j62JNZ3c9MA)
+- [Tekno Safari](https://www.youtube.com/channel/UCBGOeciBxlh1FC_Fq7H9YGg)
 - [TeknoSeyir](https://www.youtube.com/channel/UCFIHrIGT0MBMRHzQtmzOWlQ)
 - [Webrazzi](https://www.youtube.com/channel/UC04cPAH-irfZkF6EtFGrhhQ)
 - [Webtekno](https://www.youtube.com/channel/UC26buublzO30XpR-KP2TfAw)
