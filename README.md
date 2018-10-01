@@ -359,6 +359,7 @@ Faydalı olması dileğiyle...
 
 ### İş
 - [80/20](https://www.youtube.com/channel/UCS1_B6td107mvNVxT_5frvw)
+- [Atilla Yeşilada](https://www.youtube.com/channel/UCNwlNNDsWUIL1vYqrIErg-g)
 - [Girişimci Muhabbeti](https://www.youtube.com/channel/UCpHu6zvtnSSTbNgL_A07Yng)
 - [Cem Seymen](https://www.youtube.com/channel/UCvUt652_naBFlGdb7vfm_ZA)
 - [İdris Usta](https://www.youtube.com/channel/UC3wvh04Wj1DE7HNMRF8R8jw)
