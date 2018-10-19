@@ -372,6 +372,7 @@ Faydalı olması dileğiyle...
 ### Müzik
 - [Anatolian Rock Revival Project](https://www.youtube.com/channel/UCCpTaib_e5C6Q95qwazq8OA)
 - [Doğa İçin Çal](https://www.youtube.com/channel/UC_ljiMClHtF16_yNK8o99QA)
+- [EricArchive](https://www.youtube.com/channel/UCS2v3pmmpwcD0PWPwf65Zmw)
 - [Lin Pesto](https://www.youtube.com/channel/UCvEyNtbbOsHb1kEqJTkGi9w)
 - [Motto Müzik](https://www.youtube.com/channel/UCCVGqsHKA7nuwJL6FP_K4UQ)
 - [Şanışer](https://www.youtube.com/channel/UCvKJz6PqcK4-OhUXJWDAoBg)
