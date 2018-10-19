@@ -397,7 +397,8 @@ Faydalı olması dileğiyle...
 - [Satranç Medya](https://www.youtube.com/channel/UCTQbZcv-4ImPg9rC9jIjzpQ)
 - [Serkan Özkeskin](https://www.youtube.com/channel/UC8HQf8S-o2x-Od5W0NBm9aw)
 
-### Zanaat 
+### Zanaat
+- [Cemal Açar](https://www.youtube.com/channel/UCFQID9DHuLOghp83nexaoZg)
 - [Dutch Bushcraft Knives](https://www.youtube.com/channel/UC0k91MwJuS5VvNOJdbDhPYA)
 - [Hand Tool Rescue](https://www.youtube.com/channel/UCasG9kJWi1eVxM0QkyqKVJQ)
 - [Ian Atkinson](https://www.youtube.com/channel/UCLkCG-505-1t0rYlgBTSnpQ)
