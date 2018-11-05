@@ -309,6 +309,8 @@ Faydalı olması dileğiyle...
 - [Gadget Inspiration](https://www.youtube.com/channel/UCCxVLx4edMoGqlFxY8cyOjg)
 - [How To Make Everything](https://www.youtube.com/channel/UCfIqCzQJXvYj9ssCoHq327g)
 - [Hydraulic Press Channel](https://www.youtube.com/channel/UCcMDMoNu66_1Hwi5-MeiQgw)
+- [Lemur](https://www.youtube.com/channel/UC_rgUbBJr5tOfbirrvfvIVw)
+- [Mendebur Lemur](https://www.youtube.com/channel/UCnPUB-DTfgIO-p-xOPhV9jw)
 - [Objectivity](https://www.youtube.com/channel/UCtwKon9qMt5YLVgQt1tvJKg)
 - [ThinkGeek](https://www.youtube.com/channel/UCMirEQkfTm1e1YfrEuGSJxQ)
 - [Unbox Therapy](https://www.youtube.com/channel/UCsTcErHg8oDvUnTzoqsYeNw)
