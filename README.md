@@ -589,6 +589,7 @@ Faydalı olması dileğiyle...
 - [Deniz Bağdaş](https://www.youtube.com/channel/UC3Xu0FQeizzXhUtthFjFs8g)
 - [Derin Biricik](https://www.youtube.com/channel/UCWIk99HAEeiJZZskZ0day3A)
 - [Devletsah Alhanlıoglu Ozcan](https://www.youtube.com/channel/UCPbeg1Cm0gLf5zpWe9mj9ew)
+- [Engin Özdemir](https://www.youtube.com/channel/UCAFMYNh3p9Od4-dssnRvgMQ)
 - [Gözlüklü ve Sakallı](https://www.youtube.com/channel/UCkKJ6R4xeSq79u6UaYYKjuQ)
 - [Hannah Francis](https://www.youtube.com/channel/UCRVysS4Uc76QQOsefANUf0Q)
 - [Hayallerimde Ben](https://www.youtube.com/channel/UCMfkb0zF3Y0NKNeQrgrhctQ)
