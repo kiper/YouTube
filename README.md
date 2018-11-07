@@ -279,6 +279,7 @@ Faydalı olması dileğiyle...
 - [Hakan Ertan](https://www.youtube.com/channel/UCfrO4EyEc3N5TaunnfX1uHQ)
 - [Hamza Akbulut](https://www.youtube.com/channel/UCXWEna8f8Xnn6A8iw0pz-dQ)
 - [Kenan Abdullahoglu](https://www.youtube.com/channel/UC5wR13TL33-28I5UzndCuZQ)
+- [Kod Analizi](https://www.youtube.com/channel/UCRZ-qPtaD_2fdWHrzVBGI3w)
 - [Kod demleme](https://www.youtube.com/channel/UCjekbqvm1FSKhrA_mvnBfIg)
 - [Levent Sapci](https://www.youtube.com/channel/UCxljr3GZos72yJ9XLvbGYcA)
 - [Mert Bulan](https://www.youtube.com/channel/UCVsQMUopKQi8mOE26e9PS3A)
