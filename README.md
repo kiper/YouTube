@@ -290,6 +290,7 @@ Faydalı olması dileğiyle...
 - [PNPtutorials](https://www.youtube.com/channel/UCjTTeMYiWzfrKg5_i0cIkyA)
 - [Prototürk](https://www.youtube.com/channel/UC1VAnqF9VLHNXngLwpov4kA)
 - [PureCode](https://www.youtube.com/channel/UCB-KaodiHgHVKV-kD0V9Wsg)
+- [Safkan Yazılım](https://www.youtube.com/channel/UC70amjHHTQLj_ea9W78QzMw)
 - [Selman Kahya](https://www.youtube.com/channel/UC9Z-Gc_BkYuW75jKcTJICJA)
 - [Selman Kahya | Teknik](https://www.youtube.com/channel/UCmp2rZ-cJJ_TQupBzzR7LdA)
 - [Siber Güvenlik Akademisi](https://www.youtube.com/channel/UCjZcTUoYCR5nLj8G1riUvLw)
