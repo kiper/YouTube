@@ -324,6 +324,7 @@ Faydalı olması dileğiyle...
 - [Ahmet Turan Köksal](https://www.youtube.com/channel/UCUN-J9sl3y_jcJtP4u3fYow)
 - [Bob Ross](https://www.youtube.com/channel/UCxcnsr1R5Ge_fbTu5ajt8DQ)
 - [Burak Çankaya](https://www.youtube.com/channel/UCBRQMGsuR4iaVq406qsnydA)
+- [Coşkun Aral Anlatıyor](https://www.youtube.com/channel/UCbTMeHc82kdBcXLzkzJValQ)
 - [Erdi Karadeniz](https://www.youtube.com/channel/UCtnLBhzwHCDPW9TkD7n-1BA)
 - [Fakir Foturafcı](https://www.youtube.com/channel/UCtk-_6EEQ0luVPCHrRoirRw)
 - [Feza Gezginleri](https://www.youtube.com/channel/UCYXTjCfVfvZFutUaB6wsdQw)
