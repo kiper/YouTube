@@ -549,6 +549,7 @@ Faydalı olması dileğiyle...
 - [Çinde Okuyorum](https://www.youtube.com/channel/UCwu-y2JSZMvEAKyEtWRrOFQ)
 - [Emre Durmuş](https://www.youtube.com/channel/UClCBG771sRO6Ap9s84Je7Eg)
 - [Geziyorum Öyleyse Varım](https://www.youtube.com/channel/UCXOQ5aqzcgYdVaGR9eQhHgw)
+- [Gökhan Yıldırım](https://www.youtube.com/channel/UCHkbhDRKVCvCwKDYnaEJP5Q)
 - [Hasan Soylemez](https://www.youtube.com/channel/UCG4pUeXylFK8l6EmRkMTxiw)
 - [Japonic](https://www.youtube.com/channel/UC-VAVKtFV_omroUqqrH7-aw)
 - [Japonya'da Günlük Hayat](https://www.youtube.com/channel/UCdXy389g20T4X_FoI62_jsg)
