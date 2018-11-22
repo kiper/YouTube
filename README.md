@@ -426,6 +426,7 @@ Faydalı olması dileğiyle...
 - [Epic Reads](https://www.youtube.com/channel/UCSRwwQb-oMNAWWAnw0bh27w)
 - [Eren Nadir Akşamoğlu](https://www.youtube.com/channel/UC9ZbACDE1SohAqE5M1dco0A)
 - [KAFA Dergisi](https://www.youtube.com/channel/UC3UYYweSGUJgk_TlUzpEaBw)
+- [Karavandaki Adam](https://www.youtube.com/channel/UCtw6vQHr5ljE9w_C4rdaW7A)
 - [Kayıp Rıhtım](https://www.youtube.com/channel/UC4Sa5v34MFR8bGopKCQQ54A)
 - [Kitap Babası](https://www.youtube.com/channel/UCltwHQrXYiiRPPQOUdatO-Q)
 - [Kitap Oburu](https://www.youtube.com/channel/UC1CRZkQKUXbqAXRfOQ3avuQ)
