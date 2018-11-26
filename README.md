@@ -206,6 +206,7 @@ Faydalı olması dileğiyle...
 - [SeanHodgins](https://www.youtube.com/channel/UCE-bw6PRKuDlH6fP1mP4nOw)
 - [Sezer Duino](https://www.youtube.com/channel/UChkK_bAvF0D61Lr5vABgomw)
 - [Simone Giertz](https://www.youtube.com/channel/UC3KEoMzNz8eYnwBC34RaKCQ)
+- [Strange Parts](https://www.youtube.com/channel/UCO8DQrSp5yEP937qNqTooOw)
 - [Tinkernut](https://www.youtube.com/channel/UCZDA1kA3y3EIg25BpcHSpwQ)
 
 ### Sohbet
