@@ -291,6 +291,7 @@ Faydalı olması dileğiyle...
 - [PNPtutorials](https://www.youtube.com/channel/UCjTTeMYiWzfrKg5_i0cIkyA)
 - [Prototürk](https://www.youtube.com/channel/UC1VAnqF9VLHNXngLwpov4kA)
 - [PureCode](https://www.youtube.com/channel/UCB-KaodiHgHVKV-kD0V9Wsg)
+- [Python Training by Dan Bader](https://www.youtube.com/channel/UCI0vQvr9aFn27yR6Ej6n5UA)
 - [Safkan Yazılım](https://www.youtube.com/channel/UC70amjHHTQLj_ea9W78QzMw)
 - [Selman Kahya](https://www.youtube.com/channel/UC9Z-Gc_BkYuW75jKcTJICJA)
 - [Selman Kahya | Teknik](https://www.youtube.com/channel/UCmp2rZ-cJJ_TQupBzzR7LdA)
