@@ -123,6 +123,7 @@ Faydalı olması dileğiyle...
 - [Emin Çapa](https://www.youtube.com/channel/UC2XC0oI68vtIRWxD-gtEURw)
 - [Fatih Altaylı](https://www.youtube.com/channel/UCdS7OE5qbJQc7AG4SwlTzKg)
 - [Forty Two](https://www.youtube.com/channel/UCenT6s40LLU2yBNxZjmMFwA)
+- [İrfan Değirmenci](https://www.youtube.com/channel/UCSQoLoVkRKf-UfCPysLk6dg)
 - [Hikayesi Ne?](https://www.youtube.com/channel/UCjs3Yj1cXXQ1CYvRlpjuY4w)
 - [Kim O?](https://www.youtube.com/channel/UCE2zvRTKeucutU-DFCR814w)
 - [Kurzgesagt](https://www.youtube.com/channel/UCsXVk37bltHxD1rDPwtNM8Q)
