@@ -289,7 +289,7 @@ Faydalı olması dileğiyle...
 - [+Yasir Buğra Eryılmaz](https://www.youtube.com/channel/UCzVicfgMpYn23PcnMboJKtw)
 
 ### Zamazingo
-- [+Bafır Adam](https://www.youtube.com/channel/UCy_mBLD7WMVMjMD0YJO9Ueg)
+- [+Bafır](https://www.youtube.com/channel/UCy_mBLD7WMVMjMD0YJO9Ueg)
 - [Gadget Inspiration](https://www.youtube.com/channel/UCCxVLx4edMoGqlFxY8cyOjg)
 - [How To Make Everything](https://www.youtube.com/channel/UCfIqCzQJXvYj9ssCoHq327g)
 - [Hydraulic Press Channel](https://www.youtube.com/channel/UCcMDMoNu66_1Hwi5-MeiQgw)
