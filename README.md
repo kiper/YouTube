@@ -583,6 +583,5 @@ Faydalı olması dileğiyle...,
 - [+Refika'nın Mutfağı](https://www.youtube.com/channel/UCO3MaQR-Vh6cgBZRlD44jWg)
 - [Tostçu Erol](https://www.youtube.com/channel/UCCLfu2q54Fm_kecw4jj5bhw)
 - [+Vedat Milor](https://www.youtube.com/channel/UCjnNxbZ5lZ8MOiYPuf27SqA)
-- [+Yemeğim Nasıl Geldi?](https://www.youtube.com/channel/UCpNf1HvlI5IiVUb1BZhAnrA)
 
 Dipnot: Bunca kanalı takip edince abonelikler sekmesi 'mynet' sayfasına döndüğü için çeşitli elemelerden sonra kişisel olarak takip ettiğim kanalların başında (+) simgesi koydum. Diğer kanallar sakın boynunu bükmesin çünkü artık sizleri abone olarak değil bu liste yardımıyla takip edeceğim <3
