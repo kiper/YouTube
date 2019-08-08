@@ -476,7 +476,6 @@ Faydalı olması dileğiyle...
 - [PsikoSeyir](https://www.youtube.com/channel/UCRNKLJqhNHJ_5mGmIoZwD2A)
 
 ## Eğlence
-- [+amankaptan](https://www.youtube.com/channel/UCfjfZPu1JR71w_czq8D_mFA)
 - [+batesmotelpro](https://www.youtube.com/channel/UCPA4qIqVrrq71uzW02DVKRQ)
 - [+Berkcan Güven](https://www.youtube.com/channel/UCb-zL8c0oTvPl04hEoA0Q0w)
 - [+Chaby Han](https://www.youtube.com/channel/UC2p99S8BCkrQETkdIeQ-AmA)
@@ -496,6 +495,7 @@ Faydalı olması dileğiyle...
 - [İsmail Baki](https://www.youtube.com/channel/UC_I0C04urahWoYlUkHZBPCA)
 - [Jalals](https://www.youtube.com/channel/UCcf0WYfeIkecTLQ_GzkBu1w)
 - [+Kamusal Mizah](https://www.youtube.com/channel/UCK6XWOay4sher8keh2x1jLA)
+- [+Kerem Evrandır](https://www.youtube.com/channel/UCfjfZPu1JR71w_czq8D_mFA)
 - [Kingodiscotv](https://www.youtube.com/channel/UCYfnKxBF3bvxgyTJQ_t1x5A)
 - [+Koray Söğüt](https://www.youtube.com/channel/UCp0Ujpf1JqAcQUmG_MRPiLQ)
 - [+KURCALA](https://www.youtube.com/channel/UCU1Fhn0o5S0_mdcgwCPuLDg)
