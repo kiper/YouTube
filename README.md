@@ -94,7 +94,7 @@ Faydalı olması dileğiyle...
 - [Nurullah Öktem](https://www.youtube.com/channel/UCPyftxktX5dBKhZ2yLvSwmw)
 - [+Papa English](https://www.youtube.com/channel/UCwk6ifONlkvqnoMF2uyA05g)
 - [+Çağrı Hoca](https://www.youtube.com/channel/UCcIDPHNMEgISyLrxR1Rxmhg)
-- [+Dawah Mütercimleri](https://www.youtube.com/channel/UCGOKPzqNyLFpHpRgsPwArxQ)
+- [Dawah Mütercimleri](https://www.youtube.com/channel/UCGOKPzqNyLFpHpRgsPwArxQ)
 
 ### Matematik
 - [Alican Tüzün](https://www.youtube.com/channel/UCnIbChRDJ4LzxktPwDtdvXA)
