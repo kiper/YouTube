@@ -67,7 +67,6 @@ Faydalı olması dileğiyle...
 
 ## Orjinal
 - [+Barış Özcan](https://www.youtube.com/channel/UCv6jcPwFujuTIwFQ11jt1Yw)
-- [+Basak Kablan](https://www.youtube.com/channel/UCuZ6G466XodI8wchTHLQaxg)
 - [+Başka Bir Şey](https://www.youtube.com/channel/UC2lwJdnwpQnO5p5wY2pPHJg)
 - [+Big Think](https://www.youtube.com/channel/UCvQECJukTDE2i6aCoMnS-Vg)
 - [+Learn Engineering](https://www.youtube.com/channel/UCqZQJ4600a9wIfMPbYc60OQ)
@@ -76,7 +75,6 @@ Faydalı olması dileğiyle...
 - [+SALT Online](https://www.youtube.com/channel/UCiJ9vMqwZcdiJ30lP4qQnRg)
 - [+Veritasium](https://www.youtube.com/channel/UCHnyfMqiRRG1u-2MsSQLbXA)
 - [+Vsauce](https://www.youtube.com/channel/UC6nSFpj9HTCZ5t-N3Rm3-HA)
-- [+WatchCut Video](https://www.youtube.com/channel/UCbaGn5VkOVlcRgIWAHcrJKA)
 
 ## Akademi
 - [Boun CMPE490 Internet Of Things]( https://www.youtube.com/channel/UCtubK6bc2u1WyIaECqQtxJw)
