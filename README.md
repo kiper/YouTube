@@ -200,12 +200,11 @@ Faydalı olması dileğiyle...
 - [Tinkernut](https://www.youtube.com/channel/UCZDA1kA3y3EIg25BpcHSpwQ)
 
 ### Sohbet
+- [Arman & Koray Yollarda](https://www.youtube.com/channel/UCi-iGmSrkVMQGqJTtnb07fQ)
 - [+Bilişim Sohbetleri](https://www.youtube.com/channel/UCVxEtFhZvAzyVfKvwlcuzzQ)
-- [+ENGINEERED TRUTH](https://www.youtube.com/channel/UChj0w0duKtp7SDd_X9CNptw)
+- [+Engineered Truth](https://www.youtube.com/channel/UChj0w0duKtp7SDd_X9CNptw)
 - [+Klavye Delikanlıları](https://www.youtube.com/channel/UCwCqRr9zfJbDkvwqQtnNOjg)
-- [+Radyo 521](https://www.youtube.com/channel/UCcCylZwnMsHGsI4lOOyN-WA)
 - [+Teknik Sohbet](https://www.youtube.com/channel/UCWtRyjYIkzmwoNO3MGZOhNg)
-- [Yollarda.tv](https://www.youtube.com/channel/UCi-iGmSrkVMQGqJTtnb07fQ)
 
 ## Teknoloji
 ### Firma
