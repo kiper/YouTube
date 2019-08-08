@@ -53,12 +53,12 @@ Faydalı olması dileğiyle...
 - [+Dini Cevaplar](https://www.youtube.com/channel/UCizrUdlabzdgNl2MxrhCnYg)
 - [+Edip Yüksel]( https://www.youtube.com/channel/UCiPRV1voW4TpoOGTCqThDgg)
 - [+Emre Dorman](https://www.youtube.com/channel/UC2l2q3JHs8P3Zu8qMKuN-eA)
-- [+Yükselen Sözler](https://www.youtube.com/channel/UCYaBPn8Vjm71Ge55Pf9ZW3g)
 - [+Fehmi İlkay Çeçen](https://www.youtube.com/channel/UC8m4mz4HLEiSflrT-yCOZfQ)
 - [+Fıtrat Tv](https://www.youtube.com/channel/UCTd9zefnNteNAgloqTtTjVw)
 - [+Gürkan Engin](https://www.youtube.com/channel/UCnOBZLGbxtMLpeFp_3uKbmw)
 - [+İdrak-ı İslam](https://www.youtube.com/channel/UCK6_vfpGb-ZdDiI_yl9bMYQ)
 - [+Sorgulayan Müslüman](https://www.youtube.com/channel/UCUnBTGzROoxEEXLynu3J6Yg)
+- [+Yükselen Sözler](https://www.youtube.com/channel/UCYaBPn8Vjm71Ge55Pf9ZW3g)
 
 #### Y
 - [Mekteb-i Suffa](https://www.youtube.com/channel/UCWi9zsx4OyozivIDh7aUNLQ)
