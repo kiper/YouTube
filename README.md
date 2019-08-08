@@ -166,6 +166,7 @@ Faydalı olması dileğiyle...
 - [ElectroBOOM](https://www.youtube.com/channel/UCJ0-OtVpF0wOKEqT2Z1HEtA)
 - [Elektro İnceleme](https://www.youtube.com/channel/UCLVy_3GP3ISAKtxALGWS2UQ)
 - [elekTRofizikci](https://www.youtube.com/channel/UCgKabubhWZaEOsTQM-FrAsw)
+- [element14 presents](https://www.youtube.com/channel/UChturLXwYxwTOf_5krs0qvA)
 - [GreatScott!](https://www.youtube.com/channel/UC6mIxFTvXkWQVEHPsEdflzQ)
 - [Hari Wiguna](https://www.youtube.com/channel/UCBr51Py25hm9-cjCQbUaHiQ)
 - [Henryk Gasperowicz](https://www.youtube.com/channel/UCNAAxVKWPAbaZiB90_kjDJw)
@@ -173,7 +174,6 @@ Faydalı olması dileğiyle...
 - [Jeremy Blum](https://www.youtube.com/channel/UC4KXPjmKwPutGjwFZsEXB5g)
 - [learnelectronics](https://www.youtube.com/channel/UCSRTiJhBE5GsP-1fCbpFRWg)
 - [Marco Reps](https://www.youtube.com/channel/UC1O0jDlG51N3jGf6_9t-9mw)
-- [The Ben Heck Show](https://www.youtube.com/channel/UChturLXwYxwTOf_5krs0qvA)
 
 ### Make
 - [Applied Science](https://www.youtube.com/channel/UCivA7_KLKWo43tFcCkFvydw)
