@@ -399,6 +399,7 @@ Faydalı olması dileğiyle...
 - [Artjurnal](https://www.youtube.com/channel/UCUz925SMS7hmMp9xbjLXXDQ)
 - [+BookSerf](https://www.youtube.com/channel/UChWTDeH-jdNLhxeZD2LikdA)
 - [+Can Yayınları](https://www.youtube.com/channel/UCCbaz38TzwuRw5bNopSC3lQ)
+- [+Çizgi Roman Yolculuğu](https://www.youtube.com/channel/UCrfWBWRmXmp-KDvFfD8lsAQ)
 - [+Epic Reads](https://www.youtube.com/channel/UCSRwwQb-oMNAWWAnw0bh27w)
 - [+Eren Nadir Akşamoğlu](https://www.youtube.com/channel/UC9ZbACDE1SohAqE5M1dco0A)
 - [+KAFA Dergisi](https://www.youtube.com/channel/UC3UYYweSGUJgk_TlUzpEaBw)
@@ -409,7 +410,6 @@ Faydalı olması dileğiyle...
 - [+Küçük Romancı](https://www.youtube.com/channel/UCq-oLY_Lloeq57OkuM8wKnA)
 - [Mutant Serçe](https://www.youtube.com/channel/UCrHQrEvPuYGbaB37JB10M1g)
 - [Senaryo Doktoru](https://www.youtube.com/channel/UCPY7BOXTDZRi2a9sQlJD3HA)
-- [+Çizgi Roman Yolculuğu](https://www.youtube.com/channel/UCrfWBWRmXmp-KDvFfD8lsAQ)
 
 ## Görsel
 ### Tiyatro
