@@ -228,8 +228,8 @@ Faydalı olması dileğiyle...
 - [+Webtekno](https://www.youtube.com/channel/UC26buublzO30XpR-KP2TfAw)
 
 ### Kişi
+- [+Ayhan Tarakcı](https://www.youtube.com/channel/UCOgCIGPoRY3q644bN1uOg4g)
 - [+Bill Gates](https://www.youtube.com/channel/UCnEiGCE13SUI7ZvojTAVBKw)
-- [+Donanımcı Baba](https://www.youtube.com/channel/UCOgCIGPoRY3q644bN1uOg4g)
 - [+Ekin Kollama](https://www.youtube.com/channel/UCGwKgTyNa0jE1GZmFlyX9PQ)
 - [+iPhonedo](https://www.youtube.com/channel/UCvkODZ-I4tsdP2Qopov0jrA)
 - [+iPhonedo Türkiye](https://www.youtube.com/channel/UCleeGHYm74udRpj3-krDfdA)
