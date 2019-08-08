@@ -1,6 +1,6 @@
 ## YouTube
 Birkaç senedir YouTube'da denk geldiğim ve takip ettiğim kanalları kategorilendirerek böyle bir arşiv yapmak istedim.
-Faydalı olması dileğiyle...
+Faydalı olması dileğiyle...,
 
 
 
@@ -521,7 +521,7 @@ Faydalı olması dileğiyle...
 - [Nat Geo WILD](https://www.youtube.com/channel/UCDPk9MG2RexnOMGTD-YnSnA)
 - [National Geographic](https://www.youtube.com/channel/UCpVm7bg6pXKo1Pr6k5kxG9A)
 - [National Geographic Turkiye](https://www.youtube.com/channel/UCEJpsccgPoP90jGQPz35KDA)
-- [Sergul Kato](https://www.youtube.com/channel/UCei8pZj91_GGqRdx2tqq4jw)
+- [+Sergul Kato](https://www.youtube.com/channel/UCei8pZj91_GGqRdx2tqq4jw)
 - [+Travel Stories](https://www.youtube.com/channel/UCwu-y2JSZMvEAKyEtWRrOFQ)
 - [Turk Trucker](https://www.youtube.com/channel/UCwf-wGqvdnlXUOa_xtyqcXQ)
 - [+Yağmur Arat](https://www.youtube.com/channel/UCaxqDopAJTLmIpNjncbJfQw)
