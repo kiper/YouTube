@@ -128,7 +128,7 @@ Faydalı olması dileğiyle...
 - [+RealLifeLore](https://www.youtube.com/channel/UCP5tjEmvPItGyLhmjdwP7Ww)
 - [+Ruhi Çenet Videoları](https://www.youtube.com/channel/UCWpk9PSGHoJW1hZT4egxTNQ)
 - [+SmarterEveryDay](https://www.youtube.com/channel/UC6107grRI4m0o2-emgoDnAA)
-- [+SokakRoportajlari.com](https://www.youtube.com/channel/UCsECvuwn_UviZl-nvq7uflQ)
+- [+Sokak Röportajları](https://www.youtube.com/channel/UCsECvuwn_UviZl-nvq7uflQ)
 - [+Stolk](https://www.youtube.com/channel/UCvUbNqBKY_uHAfgs-xacGdQ)
 - [+The Great War](https://www.youtube.com/channel/UCUcyEsEjhPEDf69RRVhRh4A)
 - [+ViBio](https://www.youtube.com/channel/UCsJO5eIN6iKH8amd0igwTzA)
