@@ -467,12 +467,12 @@ Faydalı olması dileğiyle...
 - [Fanatik Klasik Film](https://www.youtube.com/channel/UCfIf5PT-O5D6OjWMxGhF0kQ)
 
 ## Psikoloji
+- [+Beyhan Budak](https://www.youtube.com/channel/UCEpzQk829RfkBIUmwg54g9A)
 - [Bulldog Mindset](https://www.youtube.com/channel/UCFxdcuY-S6yjZGq_2cjilHg)
 - [Doğan Cüceloğlu](https://www.youtube.com/channel/UCb1PVUbLFLAszmQbwzczZ5w)
 - [Gri Koç](https://www.youtube.com/channel/UCNsSKuUoclUlWzRdbNq7D0w)
 - [İbrahim Bilgen](https://www.youtube.com/channel/UC-JW3nX-bkX67u78IeGkv7w)
 - [Psikolog Hasan Arslan](https://www.youtube.com/channel/UCM1N4Zr9_2jqJwlj9hhXfnQ)
-- [Psikoloji TV](https://www.youtube.com/channel/UCEpzQk829RfkBIUmwg54g9A)
 - [PsikoSeyir](https://www.youtube.com/channel/UCRNKLJqhNHJ_5mGmIoZwD2A)
 
 ## Eğlence
