@@ -97,7 +97,7 @@ Faydalı olması dileğiyle...
 - [+Dawah Mütercimleri](https://www.youtube.com/channel/UCGOKPzqNyLFpHpRgsPwArxQ)
 
 ### Matematik
-- [Hoca Gibi Hoca](https://www.youtube.com/channel/UCnIbChRDJ4LzxktPwDtdvXA)
+- [Alican Tüzün](https://www.youtube.com/channel/UCnIbChRDJ4LzxktPwDtdvXA)
 - [+Matematik Köyü](https://www.youtube.com/channel/UCimO9iAJY5hllus2dgtn7tw)
 - [+Numberphile](https://www.youtube.com/channel/UCoxcjq-8xIDTYp3uz647V5A)
 - [+Pisagor Matematik Evi](https://www.youtube.com/channel/UCSFOKAV8I9P--bxtpvOVi6Q)
