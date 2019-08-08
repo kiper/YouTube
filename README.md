@@ -53,7 +53,7 @@ Faydalı olması dileğiyle...
 - [+Dini Cevaplar](https://www.youtube.com/channel/UCizrUdlabzdgNl2MxrhCnYg)
 - [+Edip Yüksel]( https://www.youtube.com/channel/UCiPRV1voW4TpoOGTCqThDgg)
 - [+Emre Dorman](https://www.youtube.com/channel/UC2l2q3JHs8P3Zu8qMKuN-eA)
-- [+Erdem Uygan](https://www.youtube.com/channel/UCYaBPn8Vjm71Ge55Pf9ZW3g)
+- [+Yükselen Sözler](https://www.youtube.com/channel/UCYaBPn8Vjm71Ge55Pf9ZW3g)
 - [+Fehmi İlkay Çeçen](https://www.youtube.com/channel/UC8m4mz4HLEiSflrT-yCOZfQ)
 - [+Fıtrat Tv](https://www.youtube.com/channel/UCTd9zefnNteNAgloqTtTjVw)
 - [+Gürkan Engin](https://www.youtube.com/channel/UCnOBZLGbxtMLpeFp_3uKbmw)
