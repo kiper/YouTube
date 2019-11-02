@@ -379,6 +379,7 @@ Faydalı olması dileğiyle...
 
 ### Spor
 - [AĞIRSAĞLAM](https://www.youtube.com/channel/UCXH9dxtCeB3Gn_QnWnBJaTQ)
+- [Barış Okan Belovacıklı](https://www.youtube.com/channel/UCCrBGTXyJLX7UXqSEVXiQQQ)
 - [Sağlam Dövüş](https://www.youtube.com/channel/UCnZLcx-Kgq330ZbAc2py9vg)
 - [Satranç Medya](https://www.youtube.com/channel/UCTQbZcv-4ImPg9rC9jIjzpQ)
 - [Serkan Özkeskin](https://www.youtube.com/channel/UC8HQf8S-o2x-Od5W0NBm9aw)
