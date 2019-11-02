@@ -1,6 +1,6 @@
 ## YouTube
 Birkaç senedir YouTube'da denk geldiğim ve takip ettiğim kanalları kategorilendirerek böyle bir arşiv yapmak istedim.
-Faydalı olması dileğiyle...,
+Faydalı olması dileğiyle...
 
 
 
@@ -45,6 +45,7 @@ Faydalı olması dileğiyle...,
 ### İlahiyat
 #### X
 - [+0Hakikat0](https://www.youtube.com/channel/UCtRmRQ6mLyPFzQTwV8ZNJew)
+- [+2 Kişilik Queen](https://www.youtube.com/channel/UC6A3UDS8g_zlnhYjqcw3B9Q)
 - [+Ahmet Murat Sağlam](https://www.youtube.com/channel/UCyJAy8BsC0aNJT7kqhXDHWA)
 - [+Alper Bilgili](https://www.youtube.com/channel/UCKJSN6gHxZo0GQE44ehaaFA)
 - [+Caner Taslaman](https://www.youtube.com/channel/UCS4I04pHV1GzXOAh8DOWMwQ)
