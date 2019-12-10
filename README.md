@@ -348,6 +348,7 @@ Faydalı olması dileğiyle...
 ### İş
 - [+Atilla Yeşilada](https://www.youtube.com/channel/UCNwlNNDsWUIL1vYqrIErg-g)
 - [+Bir İhracat Hikayesi](https://www.youtube.com/channel/UCBO3Hg_MLLp88PyVFAmsEkQ)
+- [+egirişim](https://www.youtube.com/channel/UCb-LRmmw_klCTax93YJPlXA)
 - [Girişimci Muhabbeti](https://www.youtube.com/channel/UCpHu6zvtnSSTbNgL_A07Yng)
 - [Cem Seymen](https://www.youtube.com/channel/UCvUt652_naBFlGdb7vfm_ZA)
 - [+Çay Kahve İnsan](https://www.youtube.com/channel/UCD37i3UdHYc9MJ1MnuQ6n2Q)
